@@ -1,19 +1,3 @@
-**Elephant Ear Cookies**
-
-* 1/4 cup flour
-* 1 1/2 cups confectioner's sugar
-* 1 egg
-* 1/2 teaspoon cinammon
-* 2 tablespoons margarine \(melted\)
-* 1 teaspoon cinammon
-* 1/2 cup margarine \(softened\)
-* 1/2 teaspoon vanilla
-* 2 3/4 cup Bisquick mix
-
-Mix sugar and 1 teaspoon cinammon, reserve. Mix confectioner's sugar, margarine, egg, vanilla, and 1/2 teaspoon cinammon then mix in Bisquick. Divide dough into halves. Roll each half 1/4'' thick on surface dusted with baking mix.
-
-
-
 **Old Fashioned Sugar Cookies**
 
 * 3 cups flour

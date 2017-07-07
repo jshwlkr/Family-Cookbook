@@ -1,4 +1,18 @@
+**Lemon Squares**
 
+* 3 cups flour
+* 1 1/2 cup butter
+* 3/4 cup powdered sugar
+
+Sift flour and sugar into bowl. Blend in butter with fingertips until well mixed. Pat evenly into the bottom of an 16 x 9 inch baking pan. Bake for 20 minutes at 350 degrees. Meanwhile, beat together:
+
+* 6 eggs
+* 3 cups sugar
+* 1 1/2 teaspoons baking powder
+* 7 1/2 tablespoons lemon juice
+* dash of salt
+
+Pour over baked crust and return to the oven for 20 - 25 minutes at same temperature. Cool on rack. Cut into squares. Sprinkle with sifted powdered sugar.
 
 
 

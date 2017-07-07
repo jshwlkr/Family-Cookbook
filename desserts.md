@@ -14,7 +14,22 @@ Sift flour and sugar into bowl. Blend in butter with fingertips until well mixed
 
 Pour over baked crust and return to the oven for 20 - 25 minutes at same temperature. Cool on rack. Cut into squares. Sprinkle with sifted powdered sugar.
 
+---
 
+**Oatmeal Pie**
+
+* 3/4 cup oatmeal
+* 1/2 cup coconut
+* 1/2 cup butter \(melted\)
+* 2 eggs
+* 3/4 cups sugar
+* 3/4 cup dark Karo syrup
+
+Pour into 8 inch crust. Bake at 350 degrees for 45 - 60 minutes.
+
+For a 9 inch crust use 3/4 cup butter and 1 cup sugar.
+
+---
 
 **Old Fashioned Sugar Cookies**
 

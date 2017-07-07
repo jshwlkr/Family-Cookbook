@@ -1,3 +1,7 @@
+
+
+
+
 **Old Fashioned Sugar Cookies**
 
 * 3 cups flour
@@ -8,5 +12,5 @@
 * 3 tablespoons evaporated milk
 * 1 teaspoon vanilla
 
-In large bowl combine flour, sugar, baking powder. With pastry blender cut in margarine until crumbly. Stir in egg, milk, and vanilla. Blend well. Refridgerate dough until firm. Roll on floured surface to 1/8''. Cut. Bake on ungreased sheet at 400 degrees for 5 to 8 mintues. Makes about 72 cookies.
+In large bowl combine flour, sugar, baking powder. With pastry blender cut in margarine until crumbly. Stir in egg, milk, and vanilla. Blend well. Refrigerate dough until firm. Roll on floured surface to 1/8''. Cut. Bake on ungreased sheet at 400 degrees for 5 to 8 minutes. Makes about 72 cookies.
 

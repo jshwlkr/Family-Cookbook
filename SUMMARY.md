@@ -3,5 +3,5 @@
 * [Introduction](README.md)
 * [Desserts](desserts.md)
 * [Side Dishes](side-dishes.md)
-* Main Dishes
+* [Main Dishes](main-dishes.md)
 

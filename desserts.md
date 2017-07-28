@@ -1,3 +1,31 @@
+**Apple Cake**
+
+* 1 cup corn oil
+* 2 cups sugar
+* 2 eggs
+* 1 teaspoon vanilla
+* 1 teaspoon baking powder
+* 1 teaspoon cinnamon
+* 2 cups flour
+* 1 teaspoon baking soda
+* salt
+* 3 cups diced apples
+
+Beat together oil, sugar, eggs, and vanilla. Mix together baking powder, cinnamon, flour, and baking soda. Mix together Fold in  apples. Bake for about 40 minutes \(until brown\) at 375 degrees.
+
+---
+
+**Cream Cheese Frosting**
+
+* 1 package cream cheese \(3 oz\)
+* 1/2 cup margarine
+* 1 teaspoon vanilla
+* 2 cups confectioner's sugar
+
+Cream together softened cream cheese and butter, stir in vanilla. Add sugar in small amounts and beat until smooth.
+
+---
+
 **Easy Party Cookies**
 
 * 1 cup shortening
@@ -71,4 +99,20 @@ For a 9 inch crust use 3/4 cup butter and 1 cup sugar.
 * 1 teaspoon vanilla
 
 In large bowl combine flour, sugar, baking powder. With pastry blender cut in margarine until crumbly. Stir in egg, milk, and vanilla. Blend well. Refrigerate dough until firm. Roll on floured surface to 1/8''. Cut. Bake on ungreased sheet at 400 degrees for 5 to 8 minutes. Makes about 72 cookies.
+
+---
+
+**Pumpkin Bars**
+
+* 4 eggs
+* 1 2/3 cups sugar
+* 1 cup cooking oil
+* 1 can pumpkin \(16 oz\)
+* 2 cups flour
+* 2 teaspoons baking powder
+* 2 teaspoons cinnamon
+* 1 teaspoon salt
+* 1 teaspoon baking soda
+
+Mix all ingredients together until well blended. Spread on well-greased jelly roll pan or cookie sheet with sides. Bake about 25 - 30 minutes at 350 degrees. Cool. Spread cream cheese frosting on top.
 

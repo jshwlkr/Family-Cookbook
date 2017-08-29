@@ -2,6 +2,6 @@
 
 * [Introduction](README.md)
 * [Desserts](desserts.md)
-* [Side Dishes](side-dishes.md)
 * [Main Dishes](main-dishes.md)
+* [Side Dishes](side-dishes.md)
 

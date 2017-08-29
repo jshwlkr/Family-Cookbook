@@ -15,6 +15,33 @@ Beat together oil, sugar, eggs, and vanilla. Mix together baking powder, cinnamo
 
 ---
 
+**Apple Cobbler**
+
+Filling
+
+* 5 cups sliced peeled apples \(1 1/2 lbs\)
+* 3/4 cups sugar
+* 2 tablespoons flour
+* 1 tablespoon lemon juice
+* 1 teaspoon vanilla extract
+* 1/2 teaspoon cinammon
+* 1/4 teaspoon salt
+* 2  tablespoons butter
+* 1/4 cup water
+
+Batter
+
+* 1/2 cup flour
+* 1/2 cup sugar
+* 1/4 teaspoon salt
+* 1 egg, beaten
+* 1/2 teaspoon baking soda
+* 2 tablespoons softened margarine
+
+Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x 8 x 2 baking dish, dot with butter. Combine batter seperately and beat until smooth. Pour over filling. Bake 35 to 40 minutes, until apples are tender and crust is golden. 
+
+---
+
 **Cream Cheese Frosting**
 
 * 1 package cream cheese \(3 oz\)

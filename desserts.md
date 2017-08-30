@@ -38,7 +38,7 @@ Batter
 * 1/2 teaspoon baking soda
 * 2 tablespoons softened margarine
 
-Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x 8 x 2 baking dish, dot with butter. Combine batter seperately and beat until smooth. Pour over filling. Bake 35 to 40 minutes, until apples are tender and crust is golden. 
+Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x 8 x 2 baking dish, dot with butter. Combine batter seperately and beat until smooth. Pour over filling. Bake 35 to 40 minutes, until apples are tender and crust is golden.
 
 ---
 
@@ -142,4 +142,36 @@ In large bowl combine flour, sugar, baking powder. With pastry blender cut in ma
 * 1 teaspoon baking soda
 
 Mix all ingredients together until well blended. Spread on well-greased jelly roll pan or cookie sheet with sides. Bake about 25 - 30 minutes at 350 degrees. Cool. Spread cream cheese frosting on top.
+
+---
+
+**Rocky Road**
+
+* 2 cups semisweet chocolate chips
+* 1/4 cup peanut butter
+* 2 tablespoons shortening
+* 5 cups miniature marshmallows
+* 1/2 cup chopped nuts
+
+Combine chocolate chips, peanut butter, and shortening in bowl. Microwave 5 -7 minutes until mixture is melted and smooth. Add marshmallows and nuts, blend well. Spread evenly in buttered 8'' square pan. Cover and chill until firm.
+
+---
+
+**Zucchini Banana Bread**
+
+* 1 1/2 cup flour
+* 3 teaspoons baking powder
+* 1 teaspoon salt
+* 3/4 teaspoons cinnamon
+* 1 cup rolled oats
+* 2 large ripe bananas
+* 3/4 cup sugar
+* 2/3 cup vegetable oil
+* 2 large eggs
+* 3/4 cup lightly packed grated zucchini
+* 1/2 cup chopped nuts \(optional\)
+
+Combine dry ingredients. In separate bowl slice bananas and blend with sugar, oil, and eggs. Combine with dry ingredients and beat until moist. Fold in zucchini and nuts. Put into oiled and floured pan. Bake at 350 degrees for 40 minutes.
+
+
 

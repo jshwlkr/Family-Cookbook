@@ -53,6 +53,18 @@ Cream together softened cream cheese and butter, stir in vanilla. Add sugar in s
 
 ---
 
+**Dump Cake**
+
+* 1 can crushed pineapple
+* 1 can cherry pie filling
+* 1 box yellow cake mix
+* 1 1/2 sticks butter
+* 1/2 cup crushed nuts
+
+Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling over pineapple. Sprinkle cake mix dry over top. Cut butter into slices and layer over cake mix. Add nuts over top of butter. Bake 1 hour at 350 degrees.
+
+---
+
 **Easy Party Cookies**
 
 * 1 cup shortening
@@ -145,6 +157,16 @@ Mix all ingredients together until well blended. Spread on well-greased jelly ro
 
 ---
 
+**Rice Crispy Treats**
+
+* 1/4 cup margarine
+* 1 \(10oz\) bag of marshmallows
+* 6 cups rice crispies
+
+Microwave margarine until melted. Add marshmallows, toss to coat. Microwave 1 1/2 minutes until smooth when stirred. Immediately add cereal, toss until coated. Press into greased 13 x 9 inch baking pan and let cool.
+
+---
+
 **Rocky Road**
 
 * 2 cups semisweet chocolate chips
@@ -154,6 +176,28 @@ Mix all ingredients together until well blended. Spread on well-greased jelly ro
 * 1/2 cup chopped nuts
 
 Combine chocolate chips, peanut butter, and shortening in bowl. Microwave 5 -7 minutes until mixture is melted and smooth. Add marshmallows and nuts, blend well. Spread evenly in buttered 8'' square pan. Cover and chill until firm.
+
+---
+
+**Rhubarb Cake**
+
+Cake
+
+* 1 1/2 cups brown sugar
+* 1/2 cup shortening
+* 1 teaspoon vanilla
+* 1 egg, beaten
+* 1 cup sour milk
+* 1 teaspoon baking soda
+* 2 cups flour
+* 1 1/2 cups rhubarb, finely cut
+
+Topping
+
+* 1/3 cup sugar
+* 1 teaspoon cinnamon
+
+Cream sugar and shortening. Add vanilla, egg, and salt. Put soda in milk, mix alternating with flour. Add rhubarb. Pour into 9 x 13 inch baking pan. Sprinkle with cinnamon topping. Bake 30 - 40 minutes at 350 degrees. Serve with ice cream or cool whip.
 
 ---
 
@@ -172,6 +216,4 @@ Combine chocolate chips, peanut butter, and shortening in bowl. Microwave 5 -7 m
 * 1/2 cup chopped nuts \(optional\)
 
 Combine dry ingredients. In separate bowl slice bananas and blend with sugar, oil, and eggs. Combine with dry ingredients and beat until moist. Fold in zucchini and nuts. Put into oiled and floured pan. Bake at 350 degrees for 40 minutes.
-
-
 

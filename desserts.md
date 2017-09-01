@@ -42,6 +42,17 @@ Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x
 
 ---
 
+**Cherry Something**
+
+* 2 cans cherries in juice
+* 1 box cake mix
+* 1 stick butter, melted
+* 1/2 cup chopped nuts \(optional\)
+
+Put cherries in bottom of pan. Layer cake mix over top. Pour melted butter over top. Bake at 400 degrees for 25 minutes.
+
+---
+
 **Cream Cheese Frosting**
 
 * 1 package cream cheese \(3 oz\)
@@ -215,7 +226,7 @@ Cream sugar and shortening. Add vanilla, egg, and salt. Put soda in milk, mix al
 * 1 1/2 teaspoon almond extract
 * 1 stick margarine, melted
 
-Preheat oven to 350 degrees. Spray 13'' x 9'' pan with nonstick spray. Place rhubarb in bottom of pan, cover with strawberries. Combine flour, sugar, milk, and almond extract. The dough will be lumpy. Layer over strawberries. Do not stir. Pour melted margarine over dough. Use a toothpick to swirl into dough. Bake for 1 hour. 
+Preheat oven to 350 degrees. Spray 13'' x 9'' pan with nonstick spray. Place rhubarb in bottom of pan, cover with strawberries. Combine flour, sugar, milk, and almond extract. The dough will be lumpy. Layer over strawberries. Do not stir. Pour melted margarine over dough. Use a toothpick to swirl into dough. Bake for 1 hour.
 
 ---
 

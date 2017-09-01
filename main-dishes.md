@@ -12,7 +12,7 @@ Brown beef. Combine all ingredients. Bake in covered dish at 300 degrees for 2 h
 
 ---
 
-Calico Baked Beans
+**Calico Baked Beans**
 
 * 1lb bacon
 * 1 1/2 lbs ground beef
@@ -28,6 +28,4 @@ Calico Baked Beans
 * 1 can lima beans
 
 Partially fry bacon and ground beef. Add and brown onions. Mix together all ingredients and bake for 1 hour.
-
-
 

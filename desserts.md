@@ -82,11 +82,15 @@ Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking 
 
 **Lemon Squares**
 
+Shell
+
 * 3 cups flour
 * 1 1/2 cup butter
 * 3/4 cup powdered sugar
 
 Sift flour and sugar into bowl. Blend in butter with fingertips until well mixed. Pat evenly into the bottom of an 16 x 9 inch baking pan. Bake for 20 minutes at 350 degrees. Meanwhile, beat together:
+
+Filling
 
 * 6 eggs
 * 3 cups sugar
@@ -198,6 +202,20 @@ Topping
 * 1 teaspoon cinnamon
 
 Cream sugar and shortening. Add vanilla, egg, and salt. Put soda in milk, mix alternating with flour. Add rhubarb. Pour into 9 x 13 inch baking pan. Sprinkle with cinnamon topping. Bake 30 - 40 minutes at 350 degrees. Serve with ice cream or cool whip.
+
+---
+
+**Strawberry Rhubarb Cobbler**
+
+* 5 cups frozen rhubarb, chopped
+* 2 cups sliced strawberries
+* 1 1/2 cups self-rising flour
+* 2 1/2 cups granulated sugar
+* 1 1/2 cups milk
+* 1 1/2 teaspoon almond extract
+* 1 stick margarine, melted
+
+Preheat oven to 350 degrees. Spray 13'' x 9'' pan with nonstick spray. Place rhubarb in bottom of pan, cover with strawberries. Combine flour, sugar, milk, and almond extract. The dough will be lumpy. Layer over strawberries. Do not stir. Pour melted margarine over dough. Use a toothpick to swirl into dough. Bake for 1 hour. 
 
 ---
 

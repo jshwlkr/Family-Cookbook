@@ -64,6 +64,28 @@ Cream together softened cream cheese and butter, stir in vanilla. Add sugar in s
 
 ---
 
+Come Over Cake
+
+Cake
+
+* 2 1/4 cups flour
+* 2 teaspoons soda
+* 1/2 teaspoon salt
+* 14 ounce can of vanilla frosting
+* 1 egg
+* 16 ounce can of sliced peaches \(undrained\)
+
+Topping
+
+* 1/2 cup brown sugar
+* 1/2 cup coconut
+* 1/2 cup nuts
+* cream
+
+Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frosting, egg, and peaches. Beat. Pour into pan, sprinkle with topping.  Bake 40 to 45 minutes. Cool. Use remaining frosting, thinned with cream, to drizzle over cake.
+
+---
+
 **Dump Cake**
 
 * 1 can crushed pineapple

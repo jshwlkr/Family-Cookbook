@@ -64,7 +64,7 @@ Cream together softened cream cheese and butter, stir in vanilla. Add sugar in s
 
 ---
 
-Come Over Cake
+**Come Over Cake**
 
 Cake
 
@@ -83,6 +83,21 @@ Topping
 * cream
 
 Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frosting, egg, and peaches. Beat. Pour into pan, sprinkle with topping.  Bake 40 to 45 minutes. Cool. Use remaining frosting, thinned with cream, to drizzle over cake.
+
+---
+
+**Doughnuts**
+
+* 3/4 stick butter
+* 2 cups sugar
+* 3 eggs
+* 1 cup mashed potatoes
+* 1 cup buttermilk
+* 5 tablespoons \(level\) baking powder
+* 1 - 2 teaspoons nutmeg
+* 5 - 6 cups flour
+
+Sift together all dry ingredients. Beat together wet. Combine until workable and soft. Refridgerate over night, then roll and cut the next day. Deep fry at 350 degrees until brown.
 
 ---
 

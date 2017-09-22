@@ -113,6 +113,35 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 ---
 
+**Gibbs' Family Sticky Buns**
+
+\(original\)
+
+* 1 cup salt
+* 4 cups sugar
+* 2 pounds butter
+* 1 pound yeast
+* 1 gallon milk
+* 40 pounds flour
+* white sugar and cinnamon
+
+Combine all ingredients until dough is formed. Let rise. Roll to 1/4 inch thick. Prepare sticky filling by combining 12 pounds butter and 18 pounds brown sugar. Whip together until fluffy. Spread 1/2 inch thick in bottom of baking pan. Spread melted margarine over dough. Sprinkle with white sugar and cinnamon. Roll dough tightly like a jellyroll and cur into 2 inch sections. Place sections over sticky filling in pan. Bake at 350 degrees fahrenheit for 30 - 40 minutes. Makes 280 buns.
+
+\(modified\)
+
+* 1/8 cup salt
+* 1/2 cup sugar
+* 1/4 pound butter
+* 1/8 pound yeast
+* 1 pint milk
+* 1 pint water
+* 5 pounds flour
+
+* 1 1/2 pound butter
+* 2 1/4 pound brown sugar
+
+---
+
 **Easy Party Cookies**
 
 * 1 cup shortening
@@ -190,6 +219,21 @@ For a 9 inch crust use 3/4 cup butter and 1 cup sugar.
 * 1 teaspoon vanilla
 
 In large bowl combine flour, sugar, baking powder. With pastry blender cut in margarine until crumbly. Stir in egg, milk, and vanilla. Blend well. Refrigerate dough until firm. Roll on floured surface to 1/8''. Cut. Bake on ungreased sheet at 400 degrees for 5 to 8 minutes. Makes about 72 cookies.
+
+---
+
+**Peach Cobbler**
+
+* 3/4 stick butter
+* 2+ cups sliced peaches
+* 1 2/3 cups sugar
+
+* 3/4 cup flour
+* 2 teaspoons baking powder
+* 1/8 teaspoon salt
+* 3/4 cup milk
+
+Melt butter in 8 inch pan , add 2/3 cup sugar and peaches. Combine 1 cup sugar, flour, baking powder,  salt, and milk. Pour over peaches, sprinkle with cinnamon. Bake 1 hour at 350 degrees.
 
 ---
 

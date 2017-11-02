@@ -297,6 +297,51 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 ---
 
+  
+		@page { margin: 0.79in }  
+		p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }  
+	
+
+**Easy No-Roll Sugar Cookies**
+
+1 cup butter or regular margarine, softened
+
+1 cup sugar
+
+1 egg
+
+2 cups sifted all-purpose flour
+
+½ teaspoon salt
+
+½ teaspoon baking soda
+
+½ teaspoon cream of tartar
+
+1 teaspoon vanilla extract
+
+  
+
+
+Preheat oven to 4000.
+
+In large bowl of electric mixer, at medium speed, cream butter with sugar and egg until very light and fluffy.
+
+Sift flour with salt, baking soda, and cream of tartar right into bowl. Beat at low speed until well combined, beat in vanilla.
+
+Drop by rounded teaspoon onto ungreased cookie sheet. Dip bottom of glass in sugar and press cookies to flatten slightly.
+
+Bake 8 to 10 minutes, until golden. Cool on wire rack
+
+Makes 4 dozen.
+
+  
+
+
+---
+
+
+
 **Easy Party Cookies**
 
 * 1 cup shortening
@@ -486,20 +531,11 @@ Pour over baked crust and return to the oven for 20 - 25 minutes at same tempera
 
 ---
 
-  
-	
-
 **Microwave Fudge**
 
 **\(Foolproof Dark Chocolate Fudge\)**
 
-  
-
-
 Makes about 2 pounds
-
-  
-
 
 3 \(6-ounce\) packages semi-sweet chocolate chips
 
@@ -511,9 +547,6 @@ Dash salt
 
 1 ½ teaspoons vanilla extract
 
-  
-
-
 In heavy saucepan, over low heat, melt chips with sweetened condensed milk and salt. Remove from heat; stir in nuts and vanilla. Spread evenly into wax paper-lined 8- or 9-inch square pan.
 
 Chill 2 hours or until firm. Turn fudge onto cutting board; peel off paper and cut into squares. Store loosely covered at room temperature.
@@ -522,13 +555,7 @@ MICROWAVE: In 1-quart glass measure, combine chips with sweetened condensed milk
 
 * Microwave ovens vary in wattage and power output; cooking times may need to be adjusted.
 
-  
-
-
 ---
-
-  
-
 
 **Mock Peanut Brittle**
 
@@ -546,13 +573,7 @@ Bring corn syrup and sugar to boil. Remove from heat and add peanut butter. Stir
 
 Turn on to wax paper lined cookie sheet. Cool. Break into small pieces
 
-  
-
-
 ---
-
-  
-
 
 **Molasses Sugar Cookies**
 
@@ -576,25 +597,13 @@ Turn on to wax paper lined cookie sheet. Cool. Break into small pieces
 
 ½ teasp. Salt
 
-  
-
-
 Melt shortening in a 3 or 4-quart saucepan over low heat. Remove, allow to cool. Then add sugar, molasse, egg, heat well. Sift flour, soda, cloves, ginger, cinnamon and salt, add to mixture. Mix well and chill thoroughly. Form in 1” balls, roll in gran. Sugar and palce on greased cookie sheets 2” apart.
 
 35008 to 10 minutes
 
-  
-
-
 4 dozen
 
 ---
-
-  
-
-
-  
-
 
 **Grandma C.**
 
@@ -610,9 +619,6 @@ Spread over bottom mix. Melt 2 \(1 oz\) square butter chocolate and 2 t. oleo, s
 
 ---
 
-  
-
-
 **No Bake Cookies**
 
 ½ c. margarine ½ c. peanut butter
@@ -622,9 +628,6 @@ Spread over bottom mix. Melt 2 \(1 oz\) square butter chocolate and 2 t. oleo, s
 2 c. sugar \(use 1 ¾ c. or less\) 1 t. vanilla
 
 ½ c milk
-
-  
-
 
 Mix marg. Cocoa, sugar and milk in saucepan & bring to boil. Add peanut butter, oatmeal & vanilla, mix well.
 
@@ -646,9 +649,6 @@ Mash peaches to consistency of applesauce. Heat to just about boiling. Remove fr
 
 ---
 
-  
-		
-
 **Oatmeal Cookies \| Linda Wagner**
 
 1 c. raisins ½ t. baking powder
@@ -665,20 +665,11 @@ Mash peaches to consistency of applesauce. Heat to just about boiling. Remove fr
 
 2 ½ flour ½ c nuts \(opt.\)
 
-  
-
-
 Simmer raisins in water over low heat until plump. 20/30 min. drain liquid in measuring cup to make ½ c. liquid. Cream shortening & sugar, & egg & vanilla together. Stir in liquid blend in flour & spice. Soda mix into creamed mixture & add oatmeal. Stir in raisins & nuts.
 
 Bake at 40008 to 10 min
 
-  
-
-
 ---
-
-  
-
 
 **Oatmeal Cookies 2**
 
@@ -696,16 +687,7 @@ Bake at 40008 to 10 min
 
 ½ clots
 
-  
-
-
 375010 – 12 min.
-
-  
-
-
-  
-
 
 ---
 
@@ -720,9 +702,6 @@ Bake at 40008 to 10 min
 1 ½ c. oatmeal 1 large egg
 
 1 t. vanilla
-
-  
-
 
 In a medium bowl, with wooden spoon, stir together flour, bak. pdr., salt and cinn. Add brown sugar. Stir in oats. Make well in center. Add oil, unbeaten egg, water, vanilla and raisins. Stir until dry ingred. Are moistened. Drop 2 ” apart onto ungreased sheet.
 
@@ -759,6 +738,78 @@ In large bowl combine flour, sugar, baking powder. With pastry blender cut in ma
 
 ---
 
+**Peanut Butter Brownies + Blossoms**
+
+½ c. shortening ½ chunky beanut butter
+
+1 ½ c. on less sugar 3 eggs
+
+1 ½ c. flour 1 ½ t. baking powder
+
+½ c. chock chips
+
+Mx tape together shortening, penut butter, sugar and eggs. Then add flour and baking powder. Just add choc. Chips. Spread into greased 9 x 12 pan. Bake 350020-25 min.
+
+---
+
+**Peanut Blosssoms \| Rhia Price**
+
+½ c. butter ½ p. butter ½ c. sugar
+
+½ c. br. Sugar 1 egg 1 t. vanilla
+
+1 ½ c. flour 1 t. soda ½ t. salt
+
+Shape in 1” balls, roll in sugar. Bake at 3750 for 8 min. remove and place choc. Stars and press so cookie cracks. Bake 2-5 min. longer.
+
+---
+
+**Peanut butter Cookies/Sweetchoc Chips**
+
+1 cup peanut butter
+
+1 cup brown sugar \(light\)
+
+1 large egg \(crème together\)
+
+½ t. salt
+
+½ t. soda
+
+Add 1 cup flour, 1 cup milk choc chills. Bake on greased pan - 350010-12 min
+
+---
+
+**Peanut Butter Cookies**
+
+¾ c. peanut butter 1 egg
+
+½ c. shortening 1 ¾ c. flour
+
+1 ¼ c pk. et or sugar ¾ t. salt
+
+3 t. milk ¾ t. ok soda
+
+1 t. vanilla
+
+Heat oven 3750. Combine peanut butter, shortening, sugar, milk & vanilla, beat at mid speed with mix until blended. Add egg, heat until just blended. Combine flour salt and bk. soda, add to creamed mixture at low speed. Drop by reaping teaspoon 2” apart onto ungreased sheet. Bake 7 to 8 min.
+
+---
+
+**Easy Peanut Butter Cookies**
+
+1 cn eagle sweetened cond. Milk
+
+¾ to 1 c. peanut butter
+
+1 egg
+
+2 c. biscuit baking mix
+
+Preheat oven to 3500– heat milk, peanut butter, egg and vanilla until smooth. Add biscuit mix. Chill 1 hr. shape into 1” balls, roll in sugar, place 2” apart on ungreased sheet, flatten with fork. Bake 6 to 8 min \(do not overbake\)
+
+---
+
 **Peach Cobbler**
 
 * 3/4 stick butter
@@ -777,6 +828,102 @@ Melt butter in 8 inch pan , add 2/3 cup sugar and peaches. Combine 1 cup sugar, 
 
 ---
 
+**Peaches and Cream Pie**
+
+1 baked pie shell \(9”\)
+
+Filling
+
+6 oz. cream cheese softened
+
+3 t. powdered sugar
+
+2 t. milk
+
+1 t. grated lemon juice
+
+½ t. vanilla
+
+1/8 t. salt
+
+5 large peaches \(1 ¾ to 2 lbs\)
+
+1 t. lemon jice
+
+2/3 gran. Sugar
+
+1 t. water
+
+Filling seat together cream cheese, sugar, milk, kind, vanilla, salt in small bowl at med. Speed until smoothly, creamy. Spread mixture over bottom of pie shell. Chill 1 hr.
+
+Peel, pit, chop 1 peach, combine peach, sugar, lemon juice, water in a saucepan. Bring to boiling over low heat, cook, stirring occasionally, crushing peaches against pan with back of spoon, until thick and syrupy. 10 min. cool to lukewarm.
+
+Peel, pit, and slice remaining peaches \(about 5 cups of slices over\)
+
+---
+
+**Peanut-Butter Cookies**
+
+1 – ¼ cups sifted all-purpose flour
+
+¾ teaspoon baking soda
+
+½ teaspoon baking powder
+
+¼ teaspoon salt
+
+½ cup butter or regular margarine softened
+
+½ cup chunk style peanut butter
+
+½ cup granulated sugar
+
+½ cup light brown sugar, firmly packed
+
+1 egg
+
+Preheat oven to 350F
+
+Sift flour with baking soda powder and salt. Set aside
+
+In a large bowl, with portable electric mixer at medium speed, beat butter with peanut butter. Add the sugars gradually; beat until light and fluffy. Beat in egg
+
+Add flour mixture, beat at low speed, until well combined
+
+Refrigerate dough, covered until chilled – about 1 hour.
+
+6 with teaspoon, shape dough into balls about ¾ inch in diameter. Place, 2“ apart, on ungreased cookie sheets. Flatten with fork, making crisscross pattern.
+
+Bake 6 minutes, or until lightly browned. Let stand a few minutes; then remove to wire rack to cool.
+
+Make about 5 dozen
+
+---
+
+**Pecan Sticky Buns**
+
+½ cup packet light brown sugar
+
+½ cup dark corn syrup
+
+½ cup margarine
+
+¾ cup pecan halves
+
+1 loaf \(1 lb\) frozen white bread dough, thawed and at room temperature
+
+¼ cup gran. Sugar mixed with 1 teasp. Cinnamon
+
+In a heavy 10 “ovenproof skillet bring brown sugar, corn syrup, butter to a boil over med. Heat, stirring constantly. Reduce heat, simmer 1 min, remove from heat. Cool slightly, arrange pecan halves flat side up in bottom of skillet.
+
+On a lighted floured surface roll dough into 16 x 12” rectangle. Sprinkle with cinnamon sugar.
+
+Roll up tightly from one long side, pinch seam to seal. With long sharp knife cut in 1” slices. Arrange ½” apart in skillet. Cover, let rise in warm spot 30 min or until almost doubled. Bake in center of preheated 3750 oven 15 to 20 min. until golden brown. Carefully invert onto large serving dish.
+
+Let skillet remain 2” for caramel and drizzle down.
+
+---
+
 **Pumpkin Bars**
 
 * 4 eggs
@@ -790,6 +937,44 @@ Melt butter in 8 inch pan , add 2/3 cup sugar and peaches. Combine 1 cup sugar, 
 * 1 teaspoon baking soda
 
 Mix all ingredients together until well blended. Spread on well-greased jelly roll pan or cookie sheet with sides. Bake about 25 - 30 minutes at 350 degrees. Cool. Spread cream cheese frosting on top.
+
+---
+
+**Pumpkin Pie**
+
+2 eggs slightly beaten
+
+1 ½ cups pumpkin
+
+¾ cup sugar
+
+½ teasp. Salt
+
+1 teasp. Cinnamon
+
+½ teasp. Ginger
+
+¼ teasp.. clover
+
+1 2/3 cups evaporated milk
+
+1 9” unbaked pie shell
+
+Mix ingred. In order given. Pour into shell. Bake in hot oven 425015 minutes, reduce temp. to moderated 350and continue baking 45min. or until knife comes out clean.
+
+No. 2 ½ size can makes 2 9” pies \(3 cups\)
+
+---
+
+**Rubarb Custard Pie**
+
+3 eggs slightly beaten
+
+3 t. milk – stir in 2 cups sugar
+
+¾ t. nutmeg – ¼ cup flour – 4 cups tubular dot with butter
+
+400050 to 60 mins
 
 ---
 
@@ -834,6 +1019,180 @@ Topping
 * 1 teaspoon cinnamon
 
 Cream sugar and shortening. Add vanilla, egg, and salt. Put soda in milk, mix alternating with flour. Add rhubarb. Pour into 9 x 13 inch baking pan. Sprinkle with cinnamon topping. Bake 30 - 40 minutes at 350 degrees. Serve with ice cream or cool whip.
+
+---
+
+**Shoofy Pie**
+
+1 ½ unsifted all purpose flour
+
+½ c. packed light brown sugar
+
+¼ c. unsalted butter, softened
+
+1 large egg
+
+1 c. light unsulfured molasses
+
+1 c. boiling water
+
+1 top. Baking soda
+
+\(**Dave Pastry Shell\)**
+
+In bowl, mix flour, sugar, butter with fingers until very cumbly. Remoe ½ c. mixture, sprinkle on bottom of pie shell.
+
+In another bowl, whisk egg lightly, whisk in molasses.
+
+In 2 cup glasses measuring, mix boiling water and baking soda, whisk in molasses mixture, por over flour mixture in pie shell. Top with remaining floor mixture.
+
+Place pie on lower third of oven – bake 45 min.
+
+\(3500\) or until just set in center
+
+\(serve warm or room temperature\)
+
+---
+
+**Soft Jumble Cookies**
+
+½ c shortening
+
+1 c. sugar
+
+1 t. vanilla
+
+2 eggs
+
+½ t. salt
+
+½ t. nutmeg
+
+½ c. sour cream
+
+2 ½ c. flour
+
+1 t. soda
+
+Mix altogether, drop by spoonful on baking sheet. Bake about 12 minutes
+
+**\(Grndma Augustine\)**
+
+---
+
+**Sour Cream Cookies 2**
+
+**\(Kim Potter\)**
+
+1 eggs 1 ½ c. sugar ½ c. shortening
+
+1c. sour cream 1 t. soda stirred in cream
+
+1 t. baking powder
+
+Nutmeg
+
+Flour enough to stir as thick as you can. Chill for ½ day. Roll out a cut.
+
+Bake at 3500for 6-12 minutes \(depends on cookie thickness and oven\)
+
+Watch bottom for domeness. Tops do not brown.
+
+About 6 doz.
+
+---
+
+**Sour Cream Cookies 3**
+
+**Sue Shuman**
+
+**Scottville, MI**
+
+½ cup butter
+
+1 ½ cups brown sugar
+
+2 ½ cups flour
+
+½ teaspoon baking soda
+
+½ teaspoon baking powder
+
+2 eggs
+
+1 cup thick
+
+Sour cream
+
+1 cup shopped walnuts
+
+Cream butter and sugar, add beat eggs. Add sifted dry ingredients alternately with sour cream. Add chopp nuts. Drop by teaspoonful on grease cookie sheets. Bake at 3500, for 15 minutes. Cool and frost.
+
+**Brown Butter Icing**
+
+Brown 3 tablespoon butter over low flame. Blend with powdered sugar and thin with a little cream. Add teaspoon of vanilla. Spread on cookie and top with ½ walnut.
+
+---
+
+**Sour Cream Cookies**
+
+**Hazel Thurow**
+
+**Ludington, M.**
+
+½ cup shortening
+
+1 teaspoon vanilla
+
+1 cup sugar
+
+1 egg, beaten
+
+¼ teaspoon nutmeg
+
+½ cup sour cream
+
+22/3cups flour
+
+1 teaspoon baking powder
+
+½ teaspoon baking soda
+
+½ teaspoon slt
+
+Beat first 3 ingredients together. Add egg and beat well. Add sifted dry ingredients alternately with sour cream. Chill for 1 hour. Roll dough ¼ inch thick on flour surface, cut with cookies cutters, grease cookie sheet. Bake 3500, 3750for 8 min.
+
+---
+
+  
+		@page { margin: 0.79in }  
+		p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }  
+	
+
+**Spiders + Turtles**
+
+**\(Chocolate Spiders\)**
+
+  
+
+
+1 pkg. \(6 oz.\) chocolate chips
+
+1 pkg. \(6 oz.\) butterscotch chips
+
+1 can \(3 oz.\) chow mein noodles
+
+1 pkg. \(8 oz.\) Spanish peanuts
+
+  
+
+
+Melt chips together in top of double boiler over boiling water. Leave on stove and add peanuts and noodles. Mix well until coated. Drop by teaspoon full on cookie sheet covered with wax paper. Let cool in refrigerator or store in covered box.
+
+  
+
+
+Melt caramels in saucepan with a little water, stir in nuts.
 
 ---
 

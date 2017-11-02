@@ -68,9 +68,6 @@ Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x
 
 Head oven do 3750
 
-  
-
-
 Combine sugar, water, nutmeg, candies in a saucepan, cook over low heat until candies dissolved.
 
 Add butter, mix and sift flour, the powder, salt together in a bowl, cut in shortening with pastry blender. Add milk, stir until flour is moistened. Roll out on a floured board unto a rectangle ¼” thick. Place a whole apple in center of square.
@@ -81,11 +78,7 @@ Moisten edges of pastry, fold corners D center and pinch together firmly. Place 
 
 Makes 6
 
-
-
 ---
-
-	
 
 **Apple Walnut Cobbler**
 
@@ -109,22 +102,13 @@ Makes 6
 
 1/3 c. melted margarine
 
-  
-
-
 Spread the apples in a lightly greased 2 st. baking dish, sprinkle with ½ c. walnuts, ¼ c. sugar cinnamon. In a med. Mixing bowl stire together flour, ½ c. sugar, bk. Pd.
 
 In a small bowl combine egg mixture into dry Ingrid till smooth. Pour over apples, sprinkle with remaining walnuts.
 
 Bake 50– 55min. 3250 or till a toothpick comes out clean.
 
-  
-
-
 ---
-
-  
-
 
 **Blueberry Cake Bars**
 
@@ -133,9 +117,6 @@ Crumlo topping
 1/3 c. flour ½ t. cinnamon 3 t. firm
 
 1/3 c sugar 1/8 t. cardamom margarine
-
-  
-
 
 Bars
 
@@ -149,17 +130,41 @@ Bars
 
 1 t. baking pwd
 
-  
-
-
 Topping: In bowl mix 1/3 c. flour, 1/3 c. sugar & cinnamon & cardamom. Cut in 3 t. butter, using pastry blender until crumbly. Set aside
-
-  
-
 
 Bars: Heat oven 3500. Grease bottom only of a 13 x 9 pan. In bowl, heat 1 c. sugar & 1/3 c. butter w/mixer on mud. Speed until creamy, beat in buttermilk of eggs on low speed until smooth. Beat in flour, baking pwd & salt. Spread in pan, sprinkle w/blueberries & topping. Bake 25 to 30 minutes. Cool about 1 hr.
 
+---
 
+**Chat N Chew Bars**
+
+4 c. oatmeal
+
+1 ½ c chopped picaros
+
+¾ c. butter melted
+
+½ c. honey or corn syrup
+
+1 t. vanilla
+
+1 t. salt
+
+Combine ingredients well. Press firmly into well-greased filly roll pan. Bake 4500 10– 12 min or golden & bubbles. Cool thoroughly. Cut into bars.
+
+---
+
+**Cherry Dessert Lois.**
+
+1 cup Br. Sugar 1 tsp. salt
+
+1 cup oatmeal 1” vanilla
+
+1 cup flour ½ to 1 tsp. soda
+
+¼ 1b. soft butter
+
+Mix until crumbly. Divide in half in 9 x 9 pan. Four 1 can prepared cherry pie filling in center. Cover with remaining mixture. Bake ½ hr. at 350 degrees. Serve with whipped cream
 
 ---
 
@@ -204,6 +209,88 @@ Topping
 * cream
 
 Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frosting, egg, and peaches. Beat. Pour into pan, sprinkle with topping.  Bake 40 to 45 minutes. Cool. Use remaining frosting, thinned with cream, to drizzle over cake.
+
+---
+
+	
+
+**Cranberry Pie**
+
+12 oz. Fresh Cranberries, rinsed and drained
+
+1 c. water 1 t. orange zest \(optional\)
+
+1 ¼ c. sugar 2 egg
+
+1 ½ t. flour 1 9” pie crust \(baked\)
+
+1 c. sour cream 1 c. whipping cream \(whipped\)
+
+  
+
+
+In large saucepan combine cranberries, water & sugar cook over med. Heat 10 min. or until thick, stirring frequently. Stir in orange zest if desired.
+
+But the egg yolks, ¼ c. sugar & flour. Add the mixture to the cranberries, stir in sour cream and cook 4 mix. Pour filling into crust. Refrigerate overnight. Top with whipped cream.
+
+---
+
+  
+
+
+**Cream Cheese Sugar Cookies**
+
+1 c. marg. 4 oz. cream cheese
+
+1 c. sugar 1 egg yolk
+
+1 t. vanilla 1 t. orange mind
+
+2 ½ c. flour ½ t. salt
+
+  
+
+
+Mix in order given from left to it. Refrigerate 1 hr. divide into 3 rolls. Use one at a time. Dough very soft. Roll and cut out cookies. Bake 3500– 10 – 12.
+
+  
+
+
+Frosting
+
+4 oz cream cheese 1 eb conf. sugar
+
+Vanilla butter
+
+
+
+---
+
+  
+
+
+**Cream Puffs**
+
+1 c. boiling water
+
+½ c. margarine
+
+Add – \(after taking pan off stove\)
+
+1 c. flour/stir until it makes a round ball
+
+Then add 4 eggs – one at a time, beat in repeatedly
+
+Drop by tablespoon on ungreased pan
+
+Bake 4500 40 to 50 minutes
+
+Fill when cold with pudding or whipping cream
+
+  
+
+
+
 
 ---
 
@@ -353,7 +440,9 @@ In large bowl combine flour, sugar, baking powder. With pastry blender cut in ma
 * 3/4 cup flour
 
 * 2 teaspoons baking powder
+
 * 1/8 teaspoon salt
+
 * 3/4 cup milk
 
 Melt butter in 8 inch pan , add 2/3 cup sugar and peaches. Combine 1 cup sugar, flour, baking powder,  salt, and milk. Pour over peaches, sprinkle with cinnamon. Bake 1 hour at 350 degrees.

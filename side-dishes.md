@@ -35,8 +35,6 @@ Bake 3750for 15 minutes.
 
 ---
 
-
-
 **Pasta + Bean Salad**
 
 2/3 c. cider vinegar
@@ -62,4 +60,54 @@ Bake 3750for 15 minutes.
 Combine vinegar, oil, sugar in bowl, add kidney beans, chickpeas to dressing, toss to coat. Refrigerate covered.
 
 Cook pasta according to directions, drain well, add to the bowl of beans mix in green onion, parsley, salt.
+
+---
+
+**Wanda’s Bread**
+
+2 pkg yeast – dissolve in ½ c warm water.
+
+Add:
+
+1 egg slightly beaten 4 t. cooking oil
+
+3 t. salt ½ c. sugar
+
+2 ½ c warm water let stand 10 min.
+
+Add 5c. flour and stir – add 3 more cups and turn out on board – knead well.
+
+Let rise-punch down – let use again. Put into loaves – let use bake at 4250for 25 min.
+
+---
+
+ 
+
+**Zucchini Bread 2**
+
+**\(Extra Special Zucchini Bread\)**
+
+3 eggs 2c. sugar
+
+1c. vegetable oil 1 t. vanilla extract
+
+8 oz. cream cheese \(soft\) 2 c. flour
+
+1 t. baking soda 1 t. baking powder
+
+1 t. cinnamon 1 t. salt
+
+½ t. nutmeg \(ground\) 2 c. chopped walnuts
+
+2 c. shred zucchinis
+
+Heat oven 3500. Grease and flour two 9 x 5” loaf pans
+
+In large bowl, beat eggs, sugar, oil, vanilla until smooth, about 3min. beat in cream cheese.
+
+In a large bowl, whisk flour, baking soda, powder, cinnamon, salt and nutmeg on low speed, gradually beat into egg mixture.
+
+Fold in walnuts and zucchini. Evenly divide butter between the two prepared pans. Bake @ 3500 for 60 min
+
+Remove from oven and allow to cool in pan for 10 min on wire rack. Turn out pans and allow to cool completely.
 

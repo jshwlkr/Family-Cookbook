@@ -297,10 +297,11 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 ---
 
-  
-		@page { margin: 0.79in }  
-		p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }  
-	
+```
+    @page { margin: 0.79in }
+
+    p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }
+```
 
 **Easy No-Roll Sugar Cookies**
 
@@ -320,9 +321,6 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 1 teaspoon vanilla extract
 
-  
-
-
 Preheat oven to 4000.
 
 In large bowl of electric mixer, at medium speed, cream butter with sugar and egg until very light and fluffy.
@@ -335,12 +333,7 @@ Bake 8 to 10 minutes, until golden. Cool on wire rack
 
 Makes 4 dozen.
 
-  
-
-
 ---
-
-
 
 **Easy Party Cookies**
 
@@ -1164,17 +1157,15 @@ Beat first 3 ingredients together. Add egg and beat well. Add sifted dry ingredi
 
 ---
 
-  
-		@page { margin: 0.79in }  
-		p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }  
-	
+```
+    @page { margin: 0.79in }
+
+    p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }
+```
 
 **Spiders + Turtles**
 
 **\(Chocolate Spiders\)**
-
-  
-
 
 1 pkg. \(6 oz.\) chocolate chips
 
@@ -1184,13 +1175,7 @@ Beat first 3 ingredients together. Add egg and beat well. Add sifted dry ingredi
 
 1 pkg. \(8 oz.\) Spanish peanuts
 
-  
-
-
 Melt chips together in top of double boiler over boiling water. Leave on stove and add peanuts and noodles. Mix well until coated. Drop by teaspoon full on cookie sheet covered with wax paper. Let cool in refrigerator or store in covered box.
-
-  
-
 
 Melt caramels in saucepan with a little water, stir in nuts.
 
@@ -1225,4 +1210,171 @@ Preheat oven to 350 degrees. Spray 13'' x 9'' pan with nonstick spray. Place rhu
 * 1/2 cup chopped nuts \(optional\)
 
 Combine dry ingredients. In separate bowl slice bananas and blend with sugar, oil, and eggs. Combine with dry ingredients and beat until moist. Fold in zucchini and nuts. Put into oiled and floured pan. Bake at 350 degrees for 40 minutes.
+
+---
+
+  
+			
+
+**Zucchini “Apple” Pie**
+
+It looks and tastes like apple crumb pie, but it’s not. Bake the crust in a conventional oven.
+
+  
+
+
+**Filling**
+
+½ pounds medium size zucchini, peeled, halved lengthwise and cut crosswise in thin slices \(4 cups\)
+
+1 cup granulated sugar
+
+½ cup packed light-brown sugar
+
+¼ cup all-purpose flour
+
+3 tablespoons butter or margarine
+
+2 tablespoons cider vinegar
+
+2 tablespoons water
+
+1 teaspoon lemon juice
+
+½ teaspoon each ground cinnamon and nutmeg
+
+1 baked 9-inch pie shell
+
+Crumb topping
+
+½ cup butter or margarine
+
+½ cup packed
+
+light-brown sugar
+
+1 cup all-purpose flour
+
+  
+
+
+Put all filling ingredients into a 2-quart microwave-safe bowl. Stir to mix. Microwave uncovered on high 8 to 10 minutes, stirring 3 times, until thickened. Pour into baked pie shell.
+
+To make topping, melt butter in a 1 quart microwave-safe bowl. Stir in remaining topping ingredients until blended. Cover with lid or vented plastic wrap. Microwave on high 2 to 2 ½ minutes, stirring twice, until slightly browned and bubbly.
+
+Spread out on a piece of foil. When cool enough to handle, sprinkle evenly over filled pie.
+
+Chill in refrigerator at least 3 hours
+
+Makes 8 servings. Per serving 535 cal, 5 g pro, 79 g car, 24 g fat, 43 mg chol with butter, 0 mg chol with margarine, 30 mg sod
+
+  
+
+
+**Helen M. Bauer, Sturgis**
+
+  
+
+
+---
+
+  
+
+
+**Zucchini Bars**
+
+**Betty Henenflo**
+
+1 large zucchini
+
+1 c. sugar
+
+2/3 cup lemon juice
+
+¼ teaspoon nutmeg
+
+½ teaspoon cinnamon
+
+½ cup crunch mix
+
+  
+
+
+Peel and seed zucchini slice thin like apple. Cook with lemon juice 10 min. don’t over cook, add sugar, nutmeg, cinnamon and simmer 3 minutes. Add crunch and let cool.
+
+  
+
+
+**Crunch mix**
+
+4 cups flour
+
+2 cups sugar
+
+1 ½ cup oleo
+
+  
+
+
+Combine ingredients. Put ½ mix in jelly roll pan. Bake 3500for 10 min.
+
+Add zucchini mix on top, add, top cinnamon to remaining crunch mix.
+
+Spread on top of zucchini bake 30 or more min.
+
+1 can crunch pineapple could be added to zucchini mix. Chopped nuts ½ cup could be added to top of crunch before baking.
+
+  
+
+
+---
+
+  
+
+
+**Zucchini fudge cake**
+
+  
+
+
+**Cake:**
+
+4 eggs
+
+2 ¼ cups sugar
+
+2 teaspoons vanilla
+
+¾ cup butter, softened
+
+3 cups all purpose flour
+
+½ cup unsweetened cocoa
+
+2 teaspoons baking powder
+
+1 teaspoon baking soda
+
+¾ teaspoon salt
+
+1 cup buttermilk
+
+3 cups coarsely shredded unpeeled zucchini
+
+1 cup chopped walnuts
+
+  
+
+
+**Chocolate Frosting:**
+
+1 cup butter, softened
+
+2 pounds confectioners’ sugar
+
+½ cup unsweetened cocoa
+
+1 tablespoon vanilla
+
+½ cup milk
 

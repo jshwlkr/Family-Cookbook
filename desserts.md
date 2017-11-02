@@ -212,8 +212,6 @@ Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frostin
 
 ---
 
-	
-
 **Cranberry Pie**
 
 12 oz. Fresh Cranberries, rinsed and drained
@@ -226,17 +224,11 @@ Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frostin
 
 1 c. sour cream 1 c. whipping cream \(whipped\)
 
-  
-
-
 In large saucepan combine cranberries, water & sugar cook over med. Heat 10 min. or until thick, stirring frequently. Stir in orange zest if desired.
 
 But the egg yolks, ¼ c. sugar & flour. Add the mixture to the cranberries, stir in sour cream and cook 4 mix. Pour filling into crust. Refrigerate overnight. Top with whipped cream.
 
 ---
-
-  
-
 
 **Cream Cheese Sugar Cookies**
 
@@ -248,13 +240,7 @@ But the egg yolks, ¼ c. sugar & flour. Add the mixture to the cranberries, stir
 
 2 ½ c. flour ½ t. salt
 
-  
-
-
 Mix in order given from left to it. Refrigerate 1 hr. divide into 3 rolls. Use one at a time. Dough very soft. Roll and cut out cookies. Bake 3500– 10 – 12.
-
-  
-
 
 Frosting
 
@@ -262,12 +248,7 @@ Frosting
 
 Vanilla butter
 
-
-
 ---
-
-  
-
 
 **Cream Puffs**
 
@@ -286,11 +267,6 @@ Drop by tablespoon on ungreased pan
 Bake 4500 40 to 50 minutes
 
 Fill when cold with pudding or whipping cream
-
-  
-
-
-
 
 ---
 
@@ -321,6 +297,129 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 ---
 
+**Easy Party Cookies**
+
+* 1 cup shortening
+* 2 eggs
+* 1 teaspoon baking soda
+* 1 cup brown sugar, packed
+* 1/2 cup sugar
+* 2 1/4 cup sifted flour
+* 1 teaspoon salt
+* 1 1/2 cup M
+  &
+  Ms \(3/4 lbs\)
+
+Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking soda, and salt. Add wet and dry ingredients gradually, mix well. Stir in 1/2 cup M&Ms, use rest for decoration. Drop by teaspoon on ungreased sheet, decorate top of cookies with M&Ms. Bake at 375 degrees for 10-12 minutes or until brown. Makes about 6 dozen 2 1/2'' cookies.	
+
+---
+
+**Elephant Ear Cookies**
+
+¼ c. sugar 1 t. cinnamon
+
+1 ½ c. conf. sugar ½ c. margarine, softened
+
+1 egg ½ t. vanilla
+
+½ t. cinnamon 2 ¾ c. busquick mix
+
+2 t. margarine melted
+
+  
+
+
+Mix sugar & 1 t. cinnamon, reserve. Mix conf. sugar, margarine, egg, vanilla & ½ t cinnamon then mix in bus quick. Divide dough into halves roll each half ¼ “ thick on surface dusted with baking mix. Cut each circle in ½. place on lightly greased cookie sheet. Bake until edges 3750 are light brown, 8 to 10 mum. Brush with melted margarine & sprinkle with sugar mixture. About 3 doz.
+
+---
+
+  
+
+
+**Fresh Apple Cake**
+
+1 ¼ cup corn oil
+
+2 cups sugar
+
+2 eggs beat together
+
+1 teasp. Vanilla
+
+  
+
+
+Mix all the above mixtures then fold in 3 cups diced apples, bake until mice and brown. About 35min – 3750
+
+  
+
+
+I use less sugar and some little more apples.
+
+  
+
+
+You can also add muto and raisins.
+
+  
+
+
+Ma Haffo Recipes!
+
+I found a “ropping” good for this cake \(I always use cool whip\)
+
+1 stick margarine
+
+1 cup water
+
+1 teasp. Vanilla
+
+Boil, then slowly, stir in like many combine, ½ cup brown sugar.
+
+½ cup sugar
+
+3 tablesp. Flours
+
+Cook topping about 3 minutes
+
+Cool, put on cooled cape
+
+  
+
+
+---
+
+  
+
+
+**Fresh Apple Cake**
+
+1 ½ \(1 ¼\) even less c. corn oil
+
+2 c. sugar \(less\)
+
+2 eggs 3c. apples \(more\)
+
+1 t. vanilla
+
+1 t. baking powder
+
+3 c. flour
+
+1 t. cinnamon
+
+  
+
+
+Mix all the ingred. together, last fold I 3 c. diced apples, bake until mice and brown.
+
+30 to 35 min.
+
+  
+
+
+---
+
 **Gibbs' Family Sticky Buns**
 
 \(original\)
@@ -348,21 +447,6 @@ Combine all ingredients until dough is formed. Let rise. Roll to 1/4 inch thick.
 * 1 1/2 pound butter
 
 * 2 1/4 pound brown sugar
-
----
-
-**Easy Party Cookies**
-
-* 1 cup shortening
-* 2 eggs
-* 1 teaspoon baking soda
-* 1 cup brown sugar, packed
-* 1/2 cup sugar
-* 2 1/4 cup sifted flour
-* 1 teaspoon salt
-* 1 1/2 cup M&Ms \(3/4 lbs\)
-
-Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking soda, and salt. Add wet and dry ingredients gradually, mix well. Stir in 1/2 cup M&Ms, use rest for decoration. Drop by teaspoon on ungreased sheet, decorate top of cookies with M&Ms. Bake at 375 degrees for 10-12 minutes or until brown. Makes about 6 dozen 2 1/2'' cookies.
 
 ---
 

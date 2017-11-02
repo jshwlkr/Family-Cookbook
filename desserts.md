@@ -38,7 +38,128 @@ Batter
 * 1/2 teaspoon baking soda
 * 2 tablespoons softened margarine
 
-Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x 8 x 2 baking dish, dot with butter. Combine batter seperately and beat until smooth. Pour over filling. Bake 35 to 40 minutes, until apples are tender and crust is golden.
+Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x 8 x 2 baking dish, dot with butter. Combine batter separately and beat until smooth. Pour over filling. Bake 35 to 40 minutes, until apples are tender and crust is golden.
+
+---
+
+**Apple Dumplings**
+
+1 cup sugar
+
+1 cup water
+
+1/8 tsp. ground nutmeg
+
+¼ red cinnamon candies
+
+2 tblsp. Butter or margarine
+
+2 cups sifted flour
+
+2 tsp. baking powder
+
+1 tsp. salt
+
+2/3 cup shortening
+
+½ cup milk
+
+6 small apples, pared & cared
+
+Head oven do 3750
+
+  
+
+
+Combine sugar, water, nutmeg, candies in a saucepan, cook over low heat until candies dissolved.
+
+Add butter, mix and sift flour, the powder, salt together in a bowl, cut in shortening with pastry blender. Add milk, stir until flour is moistened. Roll out on a floured board unto a rectangle ¼” thick. Place a whole apple in center of square.
+
+Sprinkle with additional sugar, cinnamon and nutmeg, dot with butter.
+
+Moisten edges of pastry, fold corners D center and pinch together firmly. Place 1” apart in a greased shallow baking dish. Pour cinnamon syrup over all. Bake about 35 minutes. Serve warm
+
+Makes 6
+
+
+
+---
+
+	
+
+**Apple Walnut Cobbler**
+
+5 c. thinly diced pealed tart apples
+
+¾ c. chopped walnuts
+
+¼ c. sugar
+
+½ t. ground cinnamon
+
+1 c. flour
+
+½ c. sugar
+
+1 t. baking powder
+
+1 beaten egg
+
+½ c. evaporated milk
+
+1/3 c. melted margarine
+
+  
+
+
+Spread the apples in a lightly greased 2 st. baking dish, sprinkle with ½ c. walnuts, ¼ c. sugar cinnamon. In a med. Mixing bowl stire together flour, ½ c. sugar, bk. Pd.
+
+In a small bowl combine egg mixture into dry Ingrid till smooth. Pour over apples, sprinkle with remaining walnuts.
+
+Bake 50– 55min. 3250 or till a toothpick comes out clean.
+
+  
+
+
+---
+
+  
+
+
+**Blueberry Cake Bars**
+
+Crumlo topping
+
+1/3 c. flour ½ t. cinnamon 3 t. firm
+
+1/3 c sugar 1/8 t. cardamom margarine
+
+  
+
+
+Bars
+
+1 c. sugar
+
+1/3 c. margarine \(softened\) 1/8 t. salt
+
+¼ c. buttermilk 1 c. frozen blueberries
+
+1/4 c. flour \(thawed drained\)
+
+1 t. baking pwd
+
+  
+
+
+Topping: In bowl mix 1/3 c. flour, 1/3 c. sugar & cinnamon & cardamom. Cut in 3 t. butter, using pastry blender until crumbly. Set aside
+
+  
+
+
+Bars: Heat oven 3500. Grease bottom only of a 13 x 9 pan. In bowl, heat 1 c. sugar & 1/3 c. butter w/mixer on mud. Speed until creamy, beat in buttermilk of eggs on low speed until smooth. Beat in flour, baking pwd & salt. Spread in pan, sprinkle w/blueberries & topping. Bake 25 to 30 minutes. Cool about 1 hr.
+
+
 
 ---
 
@@ -138,6 +259,7 @@ Combine all ingredients until dough is formed. Let rise. Roll to 1/4 inch thick.
 * 5 pounds flour
 
 * 1 1/2 pound butter
+
 * 2 1/4 pound brown sugar
 
 ---
@@ -229,6 +351,7 @@ In large bowl combine flour, sugar, baking powder. With pastry blender cut in ma
 * 1 2/3 cups sugar
 
 * 3/4 cup flour
+
 * 2 teaspoons baking powder
 * 1/8 teaspoon salt
 * 3/4 cup milk

@@ -31,7 +31,26 @@ Partially fry bacon and ground beef. Add and brown onions. Mix together all ingr
 
 ---
 
-  
+
+
+**Meatballs**
+
+Bar B.G. & Sauces \(Meatballs\)
+
+1 bottle chili sauce
+
+2 t. lemon juice
+
+1 can jellied cranberry sauce or 16 oz.
+
+2 t. brown sugar
+
+Grape jelly
+
+Bring to a mild boil, add 3 pounds of meat balls, simmer 1 to 2 hours
+
+---
+
 **Potato Perfect/Crock Pot Delicious**
 
 ½ lb. diced ham

@@ -310,7 +310,7 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
   &
   Ms \(3/4 lbs\)
 
-Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking soda, and salt. Add wet and dry ingredients gradually, mix well. Stir in 1/2 cup M&Ms, use rest for decoration. Drop by teaspoon on ungreased sheet, decorate top of cookies with M&Ms. Bake at 375 degrees for 10-12 minutes or until brown. Makes about 6 dozen 2 1/2'' cookies.	
+Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking soda, and salt. Add wet and dry ingredients gradually, mix well. Stir in 1/2 cup M&Ms, use rest for decoration. Drop by teaspoon on ungreased sheet, decorate top of cookies with M&Ms. Bake at 375 degrees for 10-12 minutes or until brown. Makes about 6 dozen 2 1/2'' cookies.
 
 ---
 
@@ -326,15 +326,9 @@ Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking 
 
 2 t. margarine melted
 
-  
-
-
 Mix sugar & 1 t. cinnamon, reserve. Mix conf. sugar, margarine, egg, vanilla & ½ t cinnamon then mix in bus quick. Divide dough into halves roll each half ¼ “ thick on surface dusted with baking mix. Cut each circle in ½. place on lightly greased cookie sheet. Bake until edges 3750 are light brown, 8 to 10 mum. Brush with melted margarine & sprinkle with sugar mixture. About 3 doz.
 
 ---
-
-  
-
 
 **Fresh Apple Cake**
 
@@ -346,23 +340,11 @@ Mix sugar & 1 t. cinnamon, reserve. Mix conf. sugar, margarine, egg, vanilla & �
 
 1 teasp. Vanilla
 
-  
-
-
 Mix all the above mixtures then fold in 3 cups diced apples, bake until mice and brown. About 35min – 3750
-
-  
-
 
 I use less sugar and some little more apples.
 
-  
-
-
 You can also add muto and raisins.
-
-  
-
 
 Ma Haffo Recipes!
 
@@ -384,13 +366,7 @@ Cook topping about 3 minutes
 
 Cool, put on cooled cape
 
-  
-
-
 ---
-
-  
-
 
 **Fresh Apple Cake**
 
@@ -408,15 +384,9 @@ Cool, put on cooled cape
 
 1 t. cinnamon
 
-  
-
-
 Mix all the ingred. together, last fold I 3 c. diced apples, bake until mice and brown.
 
 30 to 35 min.
-
-  
-
 
 ---
 
@@ -450,6 +420,50 @@ Combine all ingredients until dough is formed. Let rise. Roll to 1/4 inch thick.
 
 ---
 
+**Glazed Pumpkin Cookies**
+
+2 c. flour ½ c. marg. Softened
+
+2 t. bk. Powder 1 c. sugar
+
+½ t. salt 2 eggs
+
+2 t. cinnamon 1 c. raisins
+
+½ t. nutmeg 1 c. pureed pumpkin
+
+In big bow, heat tog. Marg. Sugar & eggs until fluffy. Add pumpkin and heat tog. until combined. Sift flour, salt, bk powder and spiced tog and add pumpkin mix. When combined stir in raisins & nuts last. Drop about 2” apart on greased sheet, bake 3500 12– 15 min.
+
+Lemon Glaze
+
+1 ¾ c. conf. sugar
+
+1 t. grated lemon peel
+
+1 t. lemon juice
+
+Mix until smooth & spread on cookies
+
+---
+
+**Graham Banana Squares**
+
+Mix in the pan graham–Banana squares
+
+4 c. graham crackers crumbs dash of salt
+
+2 c. wheat gum 1 cup mashed bananas \(2\)
+
+t. packed of sugar Y3 C. Peanut butter
+
+t. baking soda 2 t. oil
+
+1 c. remisiveet choc. Pieces \(6 oz\)
+
+???? bananas, pea butter boil with fork or spatula mix until thorough ????????????????. spread evenly \(dough will be thick\) sprinkle with choc. ???????????????? Bake in preheated oven 350030 min or until pick ??????????????? in center comes out clean. Cool in pan or rack. ???????????? in 2” squares.
+
+---
+
 **Lemon Squares**
 
 Shell
@@ -472,6 +486,152 @@ Pour over baked crust and return to the oven for 20 - 25 minutes at same tempera
 
 ---
 
+  
+	
+
+**Microwave Fudge**
+
+**\(Foolproof Dark Chocolate Fudge\)**
+
+  
+
+
+Makes about 2 pounds
+
+  
+
+
+3 \(6-ounce\) packages semi-sweet chocolate chips
+
+1 \(14-ounce\) can Eagle® Brand Sweetened Condensed Milk \(NOT evaporated milk\)
+
+Dash salt
+
+½ to 1 cup chopped nuts
+
+1 ½ teaspoons vanilla extract
+
+  
+
+
+In heavy saucepan, over low heat, melt chips with sweetened condensed milk and salt. Remove from heat; stir in nuts and vanilla. Spread evenly into wax paper-lined 8- or 9-inch square pan.
+
+Chill 2 hours or until firm. Turn fudge onto cutting board; peel off paper and cut into squares. Store loosely covered at room temperature.
+
+MICROWAVE: In 1-quart glass measure, combine chips with sweetened condensed milk. Cook on 100% power \(high\) 3 minutes. Stir until chips melt and mixture is smooth. Stir in remaining ingredients. Proceed as above
+
+* Microwave ovens vary in wattage and power output; cooking times may need to be adjusted.
+
+  
+
+
+---
+
+  
+
+
+**Mock Peanut Brittle**
+
+Vera Hoover Irons, MI.
+
+1 cup white corn syrup
+
+1 cup sugar
+
+1 cup peanut butter
+
+8 cups corn flakes
+
+Bring corn syrup and sugar to boil. Remove from heat and add peanut butter. Stir until peanut butter melts. Pour over corn flakes and stir to coat well
+
+Turn on to wax paper lined cookie sheet. Cool. Break into small pieces
+
+  
+
+
+---
+
+  
+
+
+**Molasses Sugar Cookies**
+
+¾ cup shortening
+
+1 cup sugar
+
+¼ cup brew Rabbit Molasses \(gran label\)
+
+1 egg
+
+2 teasp. Baking soda
+
+2 cups sifted flour
+
+½ teasp. Cloves
+
+½ teasp. Ginger
+
+1 teasp. Cinnamon
+
+½ teasp. Salt
+
+  
+
+
+Melt shortening in a 3 or 4-quart saucepan over low heat. Remove, allow to cool. Then add sugar, molasse, egg, heat well. Sift flour, soda, cloves, ginger, cinnamon and salt, add to mixture. Mix well and chill thoroughly. Form in 1” balls, roll in gran. Sugar and palce on greased cookie sheets 2” apart.
+
+35008 to 10 minutes
+
+  
+
+
+4 dozen
+
+---
+
+  
+
+
+  
+
+
+**Grandma C.**
+
+**Nanaimo**
+
+½ butter 1 t. vanilla 1/4c sugar
+
+1 egg 5 t. cocoa
+
+Boil over low heat stirring constantly 2min. then add 2 c. graham cracker crumbo, ½ c coconut, ½ cchooped nut meats. Spread in 13” pan, put down. Cool. Combine ¼ c. oleo, 3 t. milk, 2 t. instant van pudding, mix 2 c. confectionary sugar.
+
+Spread over bottom mix. Melt 2 \(1 oz\) square butter chocolate and 2 t. oleo, spread over top. Refrigerate
+
+---
+
+  
+
+
+**No Bake Cookies**
+
+½ c. margarine ½ c. peanut butter
+
+½ c. cocoa 3 c. quick oats
+
+2 c. sugar \(use 1 ¾ c. or less\) 1 t. vanilla
+
+½ c milk
+
+  
+
+
+Mix marg. Cocoa, sugar and milk in saucepan & bring to boil. Add peanut butter, oatmeal & vanilla, mix well.
+
+Drop by t. on cookie sheet & let cool.
+
+---
+
 **No Bake Peach Pie**
 
 * 1 1/4 cup fresh peaches \(4 - 6\)
@@ -483,6 +643,90 @@ Pour over baked crust and return to the oven for 20 - 25 minutes at same tempera
 * 1/4 cup California sherry \(optional\)
 
 Mash peaches to consistency of applesauce. Heat to just about boiling. Remove from heat. Add gelatin and stir until dissolved. Blend in lemon juice, sugar, cinnamon, and sherry. Chill until filling begins to thicken. Fold in cool whip. Place filling in pie crust and chill until firm. Top with more cool whip and peaches.
+
+---
+
+  
+		
+
+**Oatmeal Cookies \| Linda Wagner**
+
+1 c. raisins ½ t. baking powder
+
+1 c. water 1 t. soda
+
+¾ c. shortening 1 t. salt
+
+1 ½ c. sugar 1 t. cinnamon
+
+2 eggs ½ t. cloves
+
+1 t. vanilla 2 c. rolled oats
+
+2 ½ flour ½ c nuts \(opt.\)
+
+  
+
+
+Simmer raisins in water over low heat until plump. 20/30 min. drain liquid in measuring cup to make ½ c. liquid. Cream shortening & sugar, & egg & vanilla together. Stir in liquid blend in flour & spice. Soda mix into creamed mixture & add oatmeal. Stir in raisins & nuts.
+
+Bake at 40008 to 10 min
+
+  
+
+
+---
+
+  
+
+
+**Oatmeal Cookies 2**
+
+**Clent Emma, Oatmeal Cookies**
+
+4 doze
+
+1 c. shortening 2 t. orange peel
+
+1 c. sugar 1 t. vanilla
+
+2 eggs 2 c. flour
+
+¼ c. orange juice 2 coatmeal
+
+½ clots
+
+  
+
+
+375010 – 12 min.
+
+  
+
+
+  
+
+
+---
+
+**New Oatmeal Drop Cookies \| Ginny**
+
+¾ c. flour ½ t. salt
+
+¾ c. brown sugar1/3c. corn oil
+
+1 t. water ½ c. raisins \(dates
+
+1 ½ c. oatmeal 1 large egg
+
+1 t. vanilla
+
+  
+
+
+In a medium bowl, with wooden spoon, stir together flour, bak. pdr., salt and cinn. Add brown sugar. Stir in oats. Make well in center. Add oil, unbeaten egg, water, vanilla and raisins. Stir until dry ingred. Are moistened. Drop 2 ” apart onto ungreased sheet.
+
+Bake 350012 -15 min. Remove at once.
 
 ---
 

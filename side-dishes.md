@@ -77,11 +77,9 @@ Add:
 
 Add 5c. flour and stir – add 3 more cups and turn out on board – knead well.
 
-Let rise-punch down – let use again. Put into loaves – let use bake at 4250for 25 min.
+Let rise - punch down – let rise again. Put into loaves – let rise bake at 4250 for 25 min.
 
 ---
-
- 
 
 **Zucchini Bread 2**
 
@@ -99,9 +97,9 @@ Let rise-punch down – let use again. Put into loaves – let use bake at 4250f
 
 ½ t. nutmeg \(ground\) 2 c. chopped walnuts
 
-2 c. shred zucchinis
+2 c. shred zucchini
 
-Heat oven 3500. Grease and flour two 9 x 5” loaf pans
+Heat oven 350. Grease and flour two 9 x 5” loaf pans
 
 In large bowl, beat eggs, sugar, oil, vanilla until smooth, about 3min. beat in cream cheese.
 

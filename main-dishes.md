@@ -77,13 +77,13 @@ Line crock pot with aluminum foil, leaving enough to overlap potatoes when finis
 
 1 med. Onion \(chopped\)
 
-½ top celery seed
+½ tsp celery seed
 
 1 carrot \(diced\)
 
 5 c. water
 
-1 top. Chicken bouillon
+1 tsp. Chicken bouillon
 
 1 t. salt
 
@@ -103,9 +103,6 @@ Add cheese, milk during last hour
 
 ---
 
-  
-	
-
 **Slum Gullion**
 
 Slice, or shred, the cabbage fine
@@ -117,9 +114,6 @@ Slice carrots the same way
 Cut up polish sausage, in small chunks
 
 cut up the baked potato chunks
-
-  
-
 
 Fry cabbage, carrots, onions in oil \(canola or whatever\) just enough to keep the vegetables from sticking to the pan.
 

@@ -112,27 +112,27 @@ Bake 50– 55min. 3250 or till a toothpick comes out clean.
 
 **Blueberry Cake Bars**
 
- topping
+topping
 
-1/3 c. flour 
+1/3 c. flour
 
-½ t. cinnamon 
+½ t. cinnamon
 
 3 T firm margarine
 
 1/3 c sugar
 
- 1/8 t. cardamom 
+1/8 t. cardamom
 
 Bars
 
 1 c. sugar
 
-1/3 c. margarine \(softened\) 
+1/3 c. margarine \(softened\)
 
 1/8 t. salt
 
-¼ c. buttermilk 
+¼ c. buttermilk
 
 1 c. frozen blueberries\(thawed drained\)
 
@@ -166,15 +166,15 @@ Combine ingredients well. Press firmly into well-greased filly roll pan. Bake 45
 
 **Cherry Dessert **
 
-1 cup Br. Sugar 
+1 cup Br. Sugar
 
 1 tsp. salt
 
-1 cup oatmeal 
+1 cup oatmeal
 
 1 tsp. vanilla
 
-1 cup flour 
+1 cup flour
 
 ½ to 1 tsp. soda
 
@@ -232,19 +232,19 @@ Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frostin
 
 12 oz. Fresh Cranberries, rinsed and drained
 
-1 c. water 
+1 c. water
 
 1 t. orange zest \(optional\)
 
-1 ¼ c. sugar 
+1 ¼ c. sugar
 
 2 egg
 
-1 ½ T. flour 
+1 ½ T. flour
 
 9” pie crust \(baked\)
 
-1 c. sour cream 
+1 c. sour cream
 
 1 c. whipping cream \(whipped\)
 
@@ -256,19 +256,19 @@ Beat the egg yolks, ¼ c. sugar & flour. Add the mixture to the cranberries, sti
 
 **Cream Cheese Sugar Cookies**
 
-1 c. marg. 
+1 c. marg.
 
 4 oz. cream cheese
 
-1 c. sugar 
+1 c. sugar
 
 1 egg yolk
 
-1 t. vanilla 
+1 t. vanilla
 
 1 t. orange mind
 
-2 ½ c. flour 
+2 ½ c. flour
 
 ½ t. salt
 
@@ -276,11 +276,11 @@ Mix in order given from top to bottom. Refrigerate 1 hr. divide into 3 rolls. Us
 
 Frosting
 
-4 oz cream cheese 
+4 oz cream cheese
 
 1 lb conf. sugar
 
-Vanilla 
+Vanilla
 
 butter
 
@@ -384,21 +384,21 @@ Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking 
 
 **Elephant Ear Cookies**
 
-¼ c. sugar 
+¼ c. sugar
 
 1 t. cinnamon
 
-1 ½ c. conf. sugar 
+1 ½ c. conf. sugar
 
 ½ c. margarine, softened
 
-1 egg 
+1 egg
 
 ½ t. vanilla
 
 ½ t. cinnamon
 
- 2 ¾ c. bisquick mix
+2 ¾ c. bisquick mix
 
 2 T. margarine melted
 
@@ -408,19 +408,13 @@ Mix sugar & 1 t. cinnamon, reserve. Mix conf. sugar, margarine, egg, vanilla & �
 
 **Fresh Apple Cake**
 
-
-
 beat together
 
 1 ¼ cup corn oil
 
 2 cups sugar
 
-2 eggs 
-
-
-
-
+2 eggs
 
 1 teasp. Vanilla
 
@@ -429,10 +423,6 @@ Mix all the above mixtures then fold in 3 cups diced apples, bake until mice and
 I use less sugar and some little more apples.
 
 You can also add nuts and raisins.
-
-
-
-
 
 I found a “topping” good for this cake \(I always use cool whip\)
 
@@ -508,23 +498,23 @@ Combine all ingredients until dough is formed. Let rise. Roll to 1/4 inch thick.
 
 **Glazed Pumpkin Cookies**
 
-2 c. flour 
+2 c. flour
 
 ½ c. marg. Softened
 
-2 t. bk. Powder 
+2 t. bk. Powder
 
 1 c. sugar
 
-½ t. salt 
+½ t. salt
 
 2 eggs
 
-2 t. cinnamon 
+2 t. cinnamon
 
 1 c. raisins
 
-½ t. nutmeg 
+½ t. nutmeg
 
 1 c. pureed pumpkin
 
@@ -640,15 +630,15 @@ Melt shortening in a 3 or 4-quart saucepan over low heat. Remove, allow to cool.
 
 **Nanaimo**
 
-½c butter 
+½c butter
 
-1 t. vanilla 
+1 t. vanilla
 
 1/4c sugar
 
 1 egg
 
- 5 t. cocoa
+5 t. cocoa
 
 Boil over low heat stirring constantly 2min. then add 2 c. graham cracker crumbo, ½ c coconut, ½ chopped nut meats. Spread in 13” pan, put down. Cool. Combine ¼ c. oleo, 3 T. milk, 2 T. instant vanilla pudding, mix. 2 c. confectionary sugar.
 
@@ -658,15 +648,15 @@ Spread over bottom mix. Melt 2 \(1 oz\) square butter chocolate and 2 t. oleo, s
 
 **No Bake Cookies**
 
-½ c. margarine 
+½ c. margarine
 
 ½ c. peanut butter
 
-½ c. cocoa 
+½ c. cocoa
 
 3 c. quick oats
 
-2 c. sugar \(use 1 ¾ c. or less\) 
+2 c. sugar \(use 1 ¾ c. or less\)
 
 1 t. vanilla
 
@@ -694,11 +684,11 @@ Mash peaches to consistency of applesauce. Heat to just about boiling. Remove fr
 
 **Oatmeal Cookies**
 
-1 c. raisins 
+1 c. raisins
 
 ½ t. baking powder
 
-1 c. water 
+1 c. water
 
 1 t. soda
 
@@ -785,19 +775,25 @@ In large bowl combine flour, sugar, baking powder. With pastry blender cut in ma
 
 **Peanut Butter Brownies + Blossoms**
 
-½ c. shortening ½ chunky beanut butter
+½ c. shortening 
 
-1 ½ c. on less sugar 3 eggs
+½ c chunky peanut butter
 
-1 ½ c. flour 1 ½ t. baking powder
+1 ½ c. or less sugar 
 
-½ c. chock chips
+3 eggs
 
-Mx tape together shortening, penut butter, sugar and eggs. Then add flour and baking powder. Just add choc. Chips. Spread into greased 9 x 12 pan. Bake 350020-25 min.
+1 ½ c. flour 
+
+1 ½ t. baking powder
+
+½ c. choc chips
+
+Mix together shortening, peanut butter, sugar and eggs. Then add flour and baking powder. last add choc. Chips. Spread into greased 9 x 12 pan. Bake 350m 20-25 min.
 
 ---
 
-**Peanut Blosssoms \| Rhia Price**
+**Peanut Blosssoms**
 
 ½ c. butter ½ p. butter ½ c. sugar
 
@@ -805,7 +801,7 @@ Mx tape together shortening, penut butter, sugar and eggs. Then add flour and ba
 
 1 ½ c. flour 1 t. soda ½ t. salt
 
-Shape in 1” balls, roll in sugar. Bake at 3750 for 8 min. remove and place choc. Stars and press so cookie cracks. Bake 2-5 min. longer.
+Shape in 1” balls, roll in sugar. Bake at 375 for 8 min. remove and place choc. Stars and press so cookie cracks. Bake 2-5 min. longer.
 
 ---
 
@@ -821,29 +817,37 @@ Shape in 1” balls, roll in sugar. Bake at 3750 for 8 min. remove and place cho
 
 ½ t. soda
 
-Add 1 cup flour, 1 cup milk choc chills. Bake on greased pan - 350010-12 min
+Add 1 cup flour, 1 cup milk choc chills. Bake on greased pan - 350 10-12 min
 
 ---
 
 **Peanut Butter Cookies**
 
-¾ c. peanut butter 1 egg
+¾ c. peanut butter 
 
-½ c. shortening 1 ¾ c. flour
+1 egg
 
-1 ¼ c pk. et or sugar ¾ t. salt
+½ c. shortening 
 
-3 t. milk ¾ t. ok soda
+1 ¾ c. flour
+
+1 ¼ c packed br sugar 
+
+¾ t. salt
+
+3 T. milk 
+
+¾ t. bk soda
 
 1 t. vanilla
 
-Heat oven 3750. Combine peanut butter, shortening, sugar, milk & vanilla, beat at mid speed with mix until blended. Add egg, heat until just blended. Combine flour salt and bk. soda, add to creamed mixture at low speed. Drop by reaping teaspoon 2” apart onto ungreased sheet. Bake 7 to 8 min.
+Heat oven 375. Combine peanut butter, shortening, sugar, milk & vanilla, beat at mid speed with mix until blended. Add egg, beat until just blended. Combine flour salt and bk. soda, add to creamed mixture at low speed. Drop by heaping teaspoon 2” apart onto ungreased sheet. Bake 7 to 8 min.
 
 ---
 
 **Easy Peanut Butter Cookies**
 
-1 cn eagle sweetened cond. Milk
+1 can eagle sweetened cond. Milk
 
 ¾ to 1 c. peanut butter
 
@@ -851,7 +855,7 @@ Heat oven 3750. Combine peanut butter, shortening, sugar, milk & vanilla, beat a
 
 2 c. biscuit baking mix
 
-Preheat oven to 3500– heat milk, peanut butter, egg and vanilla until smooth. Add biscuit mix. Chill 1 hr. shape into 1” balls, roll in sugar, place 2” apart on ungreased sheet, flatten with fork. Bake 6 to 8 min \(do not overbake\)
+Preheat oven to 350– heat milk, peanut butter, egg and vanilla until smooth. Add biscuit mix. Chill 1 hr. shape into 1” balls, roll in sugar, place 2” apart on ungreased sheet, flatten with fork. Bake 6 to 8 min \(do not overbake\)
 
 ---
 
@@ -881,11 +885,11 @@ Filling
 
 6 oz. cream cheese softened
 
-3 t. powdered sugar
+3 T. powdered sugar
 
-2 t. milk
+2 T. milk
 
-1 t. grated lemon juice
+1 t. grated lemon rind
 
 ½ t. vanilla
 
@@ -893,17 +897,19 @@ Filling
 
 5 large peaches \(1 ¾ to 2 lbs\)
 
-1 t. lemon jice
+1 T. lemon jice
 
 2/3 gran. Sugar
 
-1 t. water
+1 T. water
 
-Filling seat together cream cheese, sugar, milk, kind, vanilla, salt in small bowl at med. Speed until smoothly, creamy. Spread mixture over bottom of pie shell. Chill 1 hr.
+Filling 
+
+beat together cream cheese, sugar, milk, rind, vanilla, salt in small bowl at med. Speed until smoothly, creamy. Spread mixture over bottom of pie shell. Chill 1 hr.
 
 Peel, pit, chop 1 peach, combine peach, sugar, lemon juice, water in a saucepan. Bring to boiling over low heat, cook, stirring occasionally, crushing peaches against pan with back of spoon, until thick and syrupy. 10 min. cool to lukewarm.
 
-Peel, pit, and slice remaining peaches \(about 5 cups of slices over\)
+Peel, pit, and slice remaining peaches \(about 5 cups of slices \) arrange slices over mixture in crust, overlapping slices. Brush cooked peach mixture over top, covering fruit completely. Chill at least 2 hours.
 
 ---
 
@@ -947,11 +953,11 @@ Make about 5 dozen
 
 **Pecan Sticky Buns**
 
-½ cup packet light brown sugar
+½ cup packed light brown sugar
 
 ½ cup dark corn syrup
 
-½ cup margarine
+1/4 cup margarine
 
 ¾ cup pecan halves
 
@@ -999,7 +1005,7 @@ Mix all ingredients together until well blended. Spread on well-greased jelly ro
 
 ½ teasp. Ginger
 
-¼ teasp.. clover
+¼ teasp.. cloves
 
 1 2/3 cups evaporated milk
 
@@ -1017,9 +1023,11 @@ No. 2 ½ size can makes 2 9” pies \(3 cups\)
 
 3 t. milk – stir in 2 cups sugar
 
-¾ t. nutmeg – ¼ cup flour – 4 cups tubular dot with butter
+¾ t. nutmeg – ¼ cup flour – 4 cups rhubarb
 
-400050 to 60 mins
+ dot with butter
+
+400 50 to 60 mins
 
 ---
 
@@ -1067,7 +1075,7 @@ Cream sugar and shortening. Add vanilla, egg, and salt. Put soda in milk, mix al
 
 ---
 
-**Shoofy Pie**
+**Shoofly Pie**
 
 1 ½ unsifted all purpose flour
 
@@ -1083,7 +1091,7 @@ Cream sugar and shortening. Add vanilla, egg, and salt. Put soda in milk, mix al
 
 1 top. Baking soda
 
-\(**Dave Pastry Shell\)**
+\(** Pastry Shell\)**
 
 In bowl, mix flour, sugar, butter with fingers until very cumbly. Remoe ½ c. mixture, sprinkle on bottom of pie shell.
 

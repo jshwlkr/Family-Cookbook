@@ -64,7 +64,7 @@ Preheat oven to 375 degrees. Assemble filling by combining all but butter in 8 x
 
 ½ cup milk
 
-6 small apples, pared & cared
+6 small apples, pared & cored
 
 Head oven do 3750
 
@@ -102,9 +102,9 @@ Makes 6
 
 1/3 c. melted margarine
 
-Spread the apples in a lightly greased 2 st. baking dish, sprinkle with ½ c. walnuts, ¼ c. sugar cinnamon. In a med. Mixing bowl stire together flour, ½ c. sugar, bk. Pd.
+Spread the apples in a lightly greased 2 qt. baking dish, sprinkle with ½ c. walnuts, ¼ c. sugar cinnamon. In a med. Mixing bowl stir together flour, ½ c. sugar, bk. pd.
 
-In a small bowl combine egg mixture into dry Ingrid till smooth. Pour over apples, sprinkle with remaining walnuts.
+In a small bowl combine egg mixture into dry ingredients till smooth. Pour over apples, sprinkle with remaining walnuts.
 
 Bake 50– 55min. 3250 or till a toothpick comes out clean.
 
@@ -112,27 +112,37 @@ Bake 50– 55min. 3250 or till a toothpick comes out clean.
 
 **Blueberry Cake Bars**
 
-Crumlo topping
+ topping
 
-1/3 c. flour ½ t. cinnamon 3 t. firm
+1/3 c. flour 
 
-1/3 c sugar 1/8 t. cardamom margarine
+½ t. cinnamon 
+
+3 T firm margarine
+
+1/3 c sugar
+
+ 1/8 t. cardamom 
 
 Bars
 
 1 c. sugar
 
-1/3 c. margarine \(softened\) 1/8 t. salt
+1/3 c. margarine \(softened\) 
 
-¼ c. buttermilk 1 c. frozen blueberries
+1/8 t. salt
 
-1/4 c. flour \(thawed drained\)
+¼ c. buttermilk 
+
+1 c. frozen blueberries\(thawed drained\)
+
+1/4 c. flour
 
 1 t. baking pwd
 
 Topping: In bowl mix 1/3 c. flour, 1/3 c. sugar & cinnamon & cardamom. Cut in 3 t. butter, using pastry blender until crumbly. Set aside
 
-Bars: Heat oven 3500. Grease bottom only of a 13 x 9 pan. In bowl, heat 1 c. sugar & 1/3 c. butter w/mixer on mud. Speed until creamy, beat in buttermilk of eggs on low speed until smooth. Beat in flour, baking pwd & salt. Spread in pan, sprinkle w/blueberries & topping. Bake 25 to 30 minutes. Cool about 1 hr.
+Bars: Heat oven 350. Grease bottom only of a 13 x 9 pan. In bowl, heat 1 c. sugar & 1/3 c. butter w/mixer on mud. Speed until creamy, beat in buttermilk of eggs on low speed until smooth. Beat in flour, baking pwd & salt. Spread in pan, sprinkle w/blueberries & topping. Bake 25 to 30 minutes. Cool about 1 hr.
 
 ---
 
@@ -140,7 +150,7 @@ Bars: Heat oven 3500. Grease bottom only of a 13 x 9 pan. In bowl, heat 1 c. sug
 
 4 c. oatmeal
 
-1 ½ c chopped picaros
+1 ½ c chopped pecans
 
 ¾ c. butter melted
 
@@ -154,15 +164,21 @@ Combine ingredients well. Press firmly into well-greased filly roll pan. Bake 45
 
 ---
 
-**Cherry Dessert Lois.**
+**Cherry Dessert **
 
-1 cup Br. Sugar 1 tsp. salt
+1 cup Br. Sugar 
 
-1 cup oatmeal 1” vanilla
+1 tsp. salt
 
-1 cup flour ½ to 1 tsp. soda
+1 cup oatmeal 
 
-¼ 1b. soft butter
+1 tsp. vanilla
+
+1 cup flour 
+
+½ to 1 tsp. soda
+
+¼ lb. soft butter
 
 Mix until crumbly. Divide in half in 9 x 9 pan. Four 1 can prepared cherry pie filling in center. Cover with remaining mixture. Bake ½ hr. at 350 degrees. Serve with whipped cream
 
@@ -216,41 +232,63 @@ Grease and flour 13 x 19 inch pan. Combine flour, soda, salt, 1 1/2 cups frostin
 
 12 oz. Fresh Cranberries, rinsed and drained
 
-1 c. water 1 t. orange zest \(optional\)
+1 c. water 
 
-1 ¼ c. sugar 2 egg
+1 t. orange zest \(optional\)
 
-1 ½ t. flour 1 9” pie crust \(baked\)
+1 ¼ c. sugar 
 
-1 c. sour cream 1 c. whipping cream \(whipped\)
+2 egg
+
+1 ½ T. flour 
+
+9” pie crust \(baked\)
+
+1 c. sour cream 
+
+1 c. whipping cream \(whipped\)
 
 In large saucepan combine cranberries, water & sugar cook over med. Heat 10 min. or until thick, stirring frequently. Stir in orange zest if desired.
 
-But the egg yolks, ¼ c. sugar & flour. Add the mixture to the cranberries, stir in sour cream and cook 4 mix. Pour filling into crust. Refrigerate overnight. Top with whipped cream.
+Beat the egg yolks, ¼ c. sugar & flour. Add the mixture to the cranberries, stir in sour cream and cook 4 mix. Pour filling into crust. Refrigerate overnight. Top with whipped cream.
 
 ---
 
 **Cream Cheese Sugar Cookies**
 
-1 c. marg. 4 oz. cream cheese
+1 c. marg. 
 
-1 c. sugar 1 egg yolk
+4 oz. cream cheese
 
-1 t. vanilla 1 t. orange mind
+1 c. sugar 
 
-2 ½ c. flour ½ t. salt
+1 egg yolk
 
-Mix in order given from left to it. Refrigerate 1 hr. divide into 3 rolls. Use one at a time. Dough very soft. Roll and cut out cookies. Bake 3500– 10 – 12.
+1 t. vanilla 
+
+1 t. orange mind
+
+2 ½ c. flour 
+
+½ t. salt
+
+Mix in order given from top to bottom. Refrigerate 1 hr. divide into 3 rolls. Use one at a time. Dough very soft. Roll and cut out cookies. Bake 350– 10 to 12.
 
 Frosting
 
-4 oz cream cheese 1 eb conf. sugar
+4 oz cream cheese 
 
-Vanilla butter
+1 lb conf. sugar
+
+Vanilla 
+
+butter
 
 ---
 
 **Cream Puffs**
+
+pan on stove
 
 1 c. boiling water
 
@@ -264,7 +302,7 @@ Then add 4 eggs – one at a time, beat in repeatedly
 
 Drop by tablespoon on ungreased pan
 
-Bake 4500 40 to 50 minutes
+Bake 450 40 to 50 minutes
 
 Fill when cold with pudding or whipping cream
 
@@ -297,12 +335,6 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 ---
 
-```
-    @page { margin: 0.79in }
-
-    p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }
-```
-
 **Easy No-Roll Sugar Cookies**
 
 1 cup butter or regular margarine, softened
@@ -321,7 +353,7 @@ Grease 9 x 12 inch pan. Add pineapple, juice and all, to bottom. Add pie filling
 
 1 teaspoon vanilla extract
 
-Preheat oven to 4000.
+Preheat oven to 400.
 
 In large bowl of electric mixer, at medium speed, cream butter with sugar and egg until very light and fluffy.
 
@@ -344,9 +376,7 @@ Makes 4 dozen.
 * 1/2 cup sugar
 * 2 1/4 cup sifted flour
 * 1 teaspoon salt
-* 1 1/2 cup M
-  &
-  Ms \(3/4 lbs\)
+* 1 1/2 cup M&Ms \(3/4 lbs\)
 
 Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking soda, and salt. Add wet and dry ingredients gradually, mix well. Stir in 1/2 cup M&Ms, use rest for decoration. Drop by teaspoon on ungreased sheet, decorate top of cookies with M&Ms. Bake at 375 degrees for 10-12 minutes or until brown. Makes about 6 dozen 2 1/2'' cookies.
 
@@ -354,27 +384,43 @@ Beat together eggs, shortening, sugar, and vanilla. Sift together flour, baking 
 
 **Elephant Ear Cookies**
 
-¼ c. sugar 1 t. cinnamon
+¼ c. sugar 
 
-1 ½ c. conf. sugar ½ c. margarine, softened
+1 t. cinnamon
 
-1 egg ½ t. vanilla
+1 ½ c. conf. sugar 
 
-½ t. cinnamon 2 ¾ c. busquick mix
+½ c. margarine, softened
 
-2 t. margarine melted
+1 egg 
 
-Mix sugar & 1 t. cinnamon, reserve. Mix conf. sugar, margarine, egg, vanilla & ½ t cinnamon then mix in bus quick. Divide dough into halves roll each half ¼ “ thick on surface dusted with baking mix. Cut each circle in ½. place on lightly greased cookie sheet. Bake until edges 3750 are light brown, 8 to 10 mum. Brush with melted margarine & sprinkle with sugar mixture. About 3 doz.
+½ t. vanilla
+
+½ t. cinnamon
+
+ 2 ¾ c. bisquick mix
+
+2 T. margarine melted
+
+Mix sugar & 1 t. cinnamon, reserve. Mix conf. sugar, margarine, egg, vanilla & ½ t cinnamon then mix in bisquick. Divide dough into halves roll each half ¼ “ thick on surface dusted with baking mix. Cut each circle in ½. place on lightly greased cookie sheet. Bake until edges 375 are light brown, 8 to 10 min. Brush with melted margarine & sprinkle with sugar mixture. About 3 doz.
 
 ---
 
 **Fresh Apple Cake**
 
+
+
+beat together
+
 1 ¼ cup corn oil
 
 2 cups sugar
 
-2 eggs beat together
+2 eggs 
+
+
+
+
 
 1 teasp. Vanilla
 
@@ -382,11 +428,13 @@ Mix all the above mixtures then fold in 3 cups diced apples, bake until mice and
 
 I use less sugar and some little more apples.
 
-You can also add muto and raisins.
+You can also add nuts and raisins.
 
-Ma Haffo Recipes!
 
-I found a “ropping” good for this cake \(I always use cool whip\)
+
+
+
+I found a “topping” good for this cake \(I always use cool whip\)
 
 1 stick margarine
 
@@ -460,45 +508,37 @@ Combine all ingredients until dough is formed. Let rise. Roll to 1/4 inch thick.
 
 **Glazed Pumpkin Cookies**
 
-2 c. flour ½ c. marg. Softened
+2 c. flour 
 
-2 t. bk. Powder 1 c. sugar
+½ c. marg. Softened
 
-½ t. salt 2 eggs
+2 t. bk. Powder 
 
-2 t. cinnamon 1 c. raisins
+1 c. sugar
 
-½ t. nutmeg 1 c. pureed pumpkin
+½ t. salt 
 
-In big bow, heat tog. Marg. Sugar & eggs until fluffy. Add pumpkin and heat tog. until combined. Sift flour, salt, bk powder and spiced tog and add pumpkin mix. When combined stir in raisins & nuts last. Drop about 2” apart on greased sheet, bake 3500 12– 15 min.
+2 eggs
+
+2 t. cinnamon 
+
+1 c. raisins
+
+½ t. nutmeg 
+
+1 c. pureed pumpkin
+
+In big bowl, heat together Marg. Sugar & eggs until fluffy. Add pumpkin and heat together until combined. Sift flour, salt, bk powder and spiced together and add pumpkin mix. When combined stir in raisins & nuts last. Drop about 2” apart on greased sheet, bake 3500 12– 15 min.
 
 Lemon Glaze
 
 1 ¾ c. conf. sugar
 
-1 t. grated lemon peel
+1 T. grated lemon peel
 
-1 t. lemon juice
+1 T. lemon juice
 
 Mix until smooth & spread on cookies
-
----
-
-**Graham Banana Squares**
-
-Mix in the pan graham–Banana squares
-
-4 c. graham crackers crumbs dash of salt
-
-2 c. wheat gum 1 cup mashed bananas \(2\)
-
-t. packed of sugar Y3 C. Peanut butter
-
-t. baking soda 2 t. oil
-
-1 c. remisiveet choc. Pieces \(6 oz\)
-
-???? bananas, pea butter boil with fork or spatula mix until thorough ????????????????. spread evenly \(dough will be thick\) sprinkle with choc. ???????????????? Bake in preheated oven 350030 min or until pick ??????????????? in center comes out clean. Cool in pan or rack. ???????????? in 2” squares.
 
 ---
 
@@ -574,7 +614,7 @@ Turn on to wax paper lined cookie sheet. Cool. Break into small pieces
 
 1 cup sugar
 
-¼ cup brew Rabbit Molasses \(gran label\)
+¼ cup brer Rabbit Molasses \(green label\)
 
 1 egg
 
@@ -592,21 +632,25 @@ Turn on to wax paper lined cookie sheet. Cool. Break into small pieces
 
 Melt shortening in a 3 or 4-quart saucepan over low heat. Remove, allow to cool. Then add sugar, molasse, egg, heat well. Sift flour, soda, cloves, ginger, cinnamon and salt, add to mixture. Mix well and chill thoroughly. Form in 1” balls, roll in gran. Sugar and palce on greased cookie sheets 2” apart.
 
-35008 to 10 minutes
+350 8 to 10 minutes
 
 4 dozen
 
 ---
 
-**Grandma C.**
-
 **Nanaimo**
 
-½ butter 1 t. vanilla 1/4c sugar
+½c butter 
 
-1 egg 5 t. cocoa
+1 t. vanilla 
 
-Boil over low heat stirring constantly 2min. then add 2 c. graham cracker crumbo, ½ c coconut, ½ cchooped nut meats. Spread in 13” pan, put down. Cool. Combine ¼ c. oleo, 3 t. milk, 2 t. instant van pudding, mix 2 c. confectionary sugar.
+1/4c sugar
+
+1 egg
+
+ 5 t. cocoa
+
+Boil over low heat stirring constantly 2min. then add 2 c. graham cracker crumbo, ½ c coconut, ½ chopped nut meats. Spread in 13” pan, put down. Cool. Combine ¼ c. oleo, 3 T. milk, 2 T. instant vanilla pudding, mix. 2 c. confectionary sugar.
 
 Spread over bottom mix. Melt 2 \(1 oz\) square butter chocolate and 2 t. oleo, spread over top. Refrigerate
 
@@ -614,11 +658,17 @@ Spread over bottom mix. Melt 2 \(1 oz\) square butter chocolate and 2 t. oleo, s
 
 **No Bake Cookies**
 
-½ c. margarine ½ c. peanut butter
+½ c. margarine 
 
-½ c. cocoa 3 c. quick oats
+½ c. peanut butter
 
-2 c. sugar \(use 1 ¾ c. or less\) 1 t. vanilla
+½ c. cocoa 
+
+3 c. quick oats
+
+2 c. sugar \(use 1 ¾ c. or less\) 
+
+1 t. vanilla
 
 ½ c milk
 
@@ -642,11 +692,15 @@ Mash peaches to consistency of applesauce. Heat to just about boiling. Remove fr
 
 ---
 
-**Oatmeal Cookies \| Linda Wagner**
+**Oatmeal Cookies**
 
-1 c. raisins ½ t. baking powder
+1 c. raisins 
 
-1 c. water 1 t. soda
+½ t. baking powder
+
+1 c. water 
+
+1 t. soda
 
 ¾ c. shortening 1 t. salt
 
@@ -660,13 +714,11 @@ Mash peaches to consistency of applesauce. Heat to just about boiling. Remove fr
 
 Simmer raisins in water over low heat until plump. 20/30 min. drain liquid in measuring cup to make ½ c. liquid. Cream shortening & sugar, & egg & vanilla together. Stir in liquid blend in flour & spice. Soda mix into creamed mixture & add oatmeal. Stir in raisins & nuts.
 
-Bake at 40008 to 10 min
+Bake at 400 8 to 10 min
 
 ---
 
 **Oatmeal Cookies 2**
-
-**Clent Emma, Oatmeal Cookies**
 
 4 doze
 
@@ -684,7 +736,7 @@ Bake at 40008 to 10 min
 
 ---
 
-**New Oatmeal Drop Cookies \| Ginny**
+**New Oatmeal Drop Cookies **
 
 ¾ c. flour ½ t. salt
 
@@ -1213,15 +1265,9 @@ Combine dry ingredients. In separate bowl slice bananas and blend with sugar, oi
 
 ---
 
-  
-			
-
 **Zucchini “Apple” Pie**
 
 It looks and tastes like apple crumb pie, but it’s not. Bake the crust in a conventional oven.
-
-  
-
 
 **Filling**
 
@@ -1255,9 +1301,6 @@ light-brown sugar
 
 1 cup all-purpose flour
 
-  
-
-
 Put all filling ingredients into a 2-quart microwave-safe bowl. Stir to mix. Microwave uncovered on high 8 to 10 minutes, stirring 3 times, until thickened. Pour into baked pie shell.
 
 To make topping, melt butter in a 1 quart microwave-safe bowl. Stir in remaining topping ingredients until blended. Cover with lid or vented plastic wrap. Microwave on high 2 to 2 ½ minutes, stirring twice, until slightly browned and bubbly.
@@ -1268,18 +1311,9 @@ Chill in refrigerator at least 3 hours
 
 Makes 8 servings. Per serving 535 cal, 5 g pro, 79 g car, 24 g fat, 43 mg chol with butter, 0 mg chol with margarine, 30 mg sod
 
-  
-
-
 **Helen M. Bauer, Sturgis**
 
-  
-
-
 ---
-
-  
-
 
 **Zucchini Bars**
 
@@ -1297,13 +1331,7 @@ Makes 8 servings. Per serving 535 cal, 5 g pro, 79 g car, 24 g fat, 43 mg chol w
 
 ½ cup crunch mix
 
-  
-
-
 Peel and seed zucchini slice thin like apple. Cook with lemon juice 10 min. don’t over cook, add sugar, nutmeg, cinnamon and simmer 3 minutes. Add crunch and let cool.
-
-  
-
 
 **Crunch mix**
 
@@ -1313,9 +1341,6 @@ Peel and seed zucchini slice thin like apple. Cook with lemon juice 10 min. don�
 
 1 ½ cup oleo
 
-  
-
-
 Combine ingredients. Put ½ mix in jelly roll pan. Bake 3500for 10 min.
 
 Add zucchini mix on top, add, top cinnamon to remaining crunch mix.
@@ -1324,18 +1349,9 @@ Spread on top of zucchini bake 30 or more min.
 
 1 can crunch pineapple could be added to zucchini mix. Chopped nuts ½ cup could be added to top of crunch before baking.
 
-  
-
-
 ---
 
-  
-
-
 **Zucchini fudge cake**
-
-  
-
 
 **Cake:**
 
@@ -1362,9 +1378,6 @@ Spread on top of zucchini bake 30 or more min.
 3 cups coarsely shredded unpeeled zucchini
 
 1 cup chopped walnuts
-
-  
-
 
 **Chocolate Frosting:**
 

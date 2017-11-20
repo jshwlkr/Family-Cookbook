@@ -775,15 +775,15 @@ In large bowl combine flour, sugar, baking powder. With pastry blender cut in ma
 
 **Peanut Butter Brownies + Blossoms**
 
-½ c. shortening 
+½ c. shortening
 
 ½ c chunky peanut butter
 
-1 ½ c. or less sugar 
+1 ½ c. or less sugar
 
 3 eggs
 
-1 ½ c. flour 
+1 ½ c. flour
 
 1 ½ t. baking powder
 
@@ -823,19 +823,19 @@ Add 1 cup flour, 1 cup milk choc chills. Bake on greased pan - 350 10-12 min
 
 **Peanut Butter Cookies**
 
-¾ c. peanut butter 
+¾ c. peanut butter
 
 1 egg
 
-½ c. shortening 
+½ c. shortening
 
 1 ¾ c. flour
 
-1 ¼ c packed br sugar 
+1 ¼ c packed br sugar
 
 ¾ t. salt
 
-3 T. milk 
+3 T. milk
 
 ¾ t. bk soda
 
@@ -903,7 +903,7 @@ Filling
 
 1 T. water
 
-Filling 
+Filling
 
 beat together cream cheese, sugar, milk, rind, vanilla, salt in small bowl at med. Speed until smoothly, creamy. Spread mixture over bottom of pie shell. Chill 1 hr.
 
@@ -1025,7 +1025,7 @@ No. 2 ½ size can makes 2 9” pies \(3 cups\)
 
 ¾ t. nutmeg – ¼ cup flour – 4 cups rhubarb
 
- dot with butter
+dot with butter
 
 400 50 to 60 mins
 
@@ -1129,17 +1129,23 @@ Place pie on lower third of oven – bake 45 min.
 
 Mix altogether, drop by spoonful on baking sheet. Bake about 12 minutes
 
-**\(Grndma Augustine\)**
+
 
 ---
 
 **Sour Cream Cookies 2**
 
-**\(Kim Potter\)**
 
-1 eggs 1 ½ c. sugar ½ c. shortening
 
-1c. sour cream 1 t. soda stirred in cream
+1 eggs
+
+ 1 ½ c. sugar 
+
+½ c. shortening
+
+1c. sour cream 
+
+1 t. soda stirred in cream
 
 1 t. baking powder
 
@@ -1147,7 +1153,7 @@ Nutmeg
 
 Flour enough to stir as thick as you can. Chill for ½ day. Roll out a cut.
 
-Bake at 3500for 6-12 minutes \(depends on cookie thickness and oven\)
+Bake at 350 for 6-12 minutes \(depends on cookie thickness and oven\)
 
 Watch bottom for domeness. Tops do not brown.
 
@@ -1218,9 +1224,7 @@ Beat first 3 ingredients together. Add egg and beat well. Add sifted dry ingredi
 ---
 
 ```
-    @page { margin: 0.79in }
-
-    p { margin-bottom: 0.1in; direction: ltr; line-height: 120%; text-align: left; orphans: 2; widows: 2 }
+  
 ```
 
 **Spiders + Turtles**
